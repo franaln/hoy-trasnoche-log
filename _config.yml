@@ -1,8 +1,8 @@
 title: Hoy Transnoche Log
 
 author:
-  name: "franaln"
-  email: "franal@gmail.com"
+  name: franaln
+  email: franaln@gmail.com
 
 description: >
   Todos los episodios del unico podcast del mundo con las peliculas de las que
@@ -11,6 +11,7 @@ description: >
 plugins:
   - jekyll-relative-links
   - jekyll-seo-tag
+  - jekyll-remote-theme
 
 relative_links:
   enabled: true
@@ -24,9 +25,22 @@ header_pages:
   - episodes.md
   - stats.md
 
-theme: minima
-
 minima:
+  date_format: "%b %-d, %Y"
   social_links:
     - { platform: github,         user_url: "https://github.com/franaln/hoy-trasnoche-log" }
-    - { platform: instagram,      user_url: "https://www.instagram.com/filmejuntoalpueblo" }
+    - { platform: instagram,      user_url: "https://www.instagram.com/jekyll" }
+    - { platform: linkedin,       user_url: "https://www.linkedin.com/in/jekyll" }
+    - { platform: twitter,        user_url: "https://twitter.com/jekyllrb" }
+
+
+show_excerpts: false # set to true to show excerpts on the homepage
+
+# Build settings
+#baseurl: /minima
+remote_theme: jekyll/minima
+
+# plugins:
+#   - jekyll-feed
+#   - jekyll-remote-theme
+#   - jekyll-seo-tag
