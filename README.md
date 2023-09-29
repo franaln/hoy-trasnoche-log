@@ -524,6 +524,10 @@ UN CALO. UNA FLOR. DOS PELÍCULAS. MUCHA COYUNTURA. NINGÚN KENNEDY.
 
 ## [230] - 2021.10.09 - Se pone tu vulva y la usa de taparrabos (72m) [spotify](https://open.spotify.com/episode/5UDbiKsmzFXu85jxQc3yrr)
 
+* Britney vs. Spears
+
+* The Intruder
+
 AHHHHHH PENSASTE QUE NO SALÍA Sí, no estás soñando: desde esta semana tenés DOBLE ración de Hoy Trasnoche, tu bolsa de falopa favorita. Los viernes, el Hoy Trasnoche CLASSIC. Y los jueves, Space según Hoy Trasnoche, del que te contamos todo en este episodio. Además: el documental Britney vs. Spears y la argentina El Prófugo, dos películas dirigidas por mujeres sobre mujeres en situaciones límite. COYUNTURA. ¿Es posta que descubrieron al Asesino del Zodíaco? Calu y Flor exponen sus teorías sobre este nuevo hallazgo. Y en la saga de JFK, es hora de decirle adiós a Marlene Dietrich.
 
 ## [229] - 2021.10.01 - Hoy.Trasnoche.Live.300921.Vilouta.Brown.Web-DL.AdultDiaperz (43m) [spotify](https://open.spotify.com/episode/12GZs8XP792DyNtEnEX7Tb)
@@ -536,57 +540,93 @@ Lo dijiste cinco veces frente al espejo y acá está: el nuevo episodio de Hoy T
 
 ## [227] - 2021.09.17 - HOLA HOY TRASNOCHE CÓMO ESTÁS CHUPAPIJA (77m) [spotify](https://open.spotify.com/episode/2x1mM57D2dLwIofyEC2P8h)
 
+* Malignant (2021)
+
+* Prisoners of the Ghostland (2021)
+
 La Asociación de Bares Notables de la Ciudad de Buenos Aires y el Gremio de Porteños que se paran como Parisinos manifiestan públicamente su repudio a los agravios emitidos por la conductora de este envío Fiorella Sargenti y anuncian que elevarán la correspondiente denuncia ante el INADI por estigmatización. Mientras tanto, en este episodio de Hoy Trasnoche, TOTAL NORMALIDAD. Malignant y Prisoners of the Ghostland: una es buena y una es una (cito) “verga sifilítica”. Denis Villeneuve vs. Marvel Zombies. El pase de Christopher Nolan a Universal. Cada cuánto se lava sus partes una señora. Y qué pasa si tu bolo fecal cobra vida.
 
 ## [226] - 2021.09.03 - Eyaculacionprecozshaming (83m) [spotify](https://open.spotify.com/episode/1No9Rl9hle90t2nh0TLD1k)
+
+* My Heart Can't Beat Unless You Tell It To
 
 Ante las sucesivas negativas de aumentos salariales por parte de Posta Punto Com y la falta de novedades reiteradas sobre la realización del Posta Offline, el Sindicato de Redactores de Descripciones de Episodios de Hoy Trasnoche (SiDeReDEpiHoT) dispone una retención de tareas hasta el viernes 10 de septiembre.
 
 ## [225] - 2021.08.28 - Por la vuelta del término "fifar" a los medios de comunicación (68m) [spotify](https://open.spotify.com/episode/5WBTVU4tf7KvO0pNY7MRT4)
 
+* Annette
+
 A ESTA HORA??????????????????????????
 
 ## [224] - 2021.08.20 - Le gusta tanto la noche que pegó un canje de pijamas (66m) [spotify](https://open.spotify.com/episode/3cNBLeh0qc5y61pJwQYBq4)
+
+* The Green Knight
 
 Hoy Trasnoche: ahora también disponible en OnlyFans. En este episodio, Flor y Calu vieron The Green Knight, de David Lowery. ¿Será la película que tenés que ver este fin de semana? Sólo hay una forma de averiguarlo. Googleando. Aunque si querés también podés escuchar esto. Hablando de películas, ¿viste la lista de las 100 mejores de todos los tiempos según Rotten Tomatoes? Bueno, Flor y Calu le hacen caca encima. Como si todo esto fuera poco, te cuentan la historia de la chancha de Pig. Suscribite por 10 dólares mensuales y Flor te muestra los pies.
 
 ## [223] - 2021.08.13 - Pezones en situación de lactancia (75m) [spotify](https://open.spotify.com/episode/34JGdz7jcGBs541BjNvBHa)
 
+* Val
+
 Sí, ya sabemos. Estabas esperando con ansias que llegue el viernes para que Calu y Flor te recomienden películas para ver el fin de semana largo. ¿Y con qué te encontrás? Con una charla de 20 minutos sobre pezones y leche materna y acusaciones de que George Lucas y David Bowie son nazis. Por suerte, reconocieron brevemente que este SUPO SER un podcast de cine (después se olvidó) y se meten con Val, el documental sobre la vida de Val Kilmer. ¿Hay coyuntura? Algo. Vuelve Brendan Fraser. ¿Se viene el Brenaissance? No. Otro que quiere volver (que ojalá que no) es Shia LaBeouf. Y todavía no sabemos pronunciar su apellido. Finalmente, Flor nos sorprende y nos habla de La raza futura, un libro de 1871. ¿POR QUÉ? Y... vas a tener que dejar de leer esto y escuchar el episodio. Igual tampoco es que tenía tantas cosas más para decir.
 
 ## [222] - 2021.08.06 - Buenas tardes, buenas noches, buenos días, buenas tardes, buenas noches (62m) [spotify](https://open.spotify.com/episode/3crV9Lj5FfKX3TtAinZkbR)
+
+* Zola
+
+* The Empty Man
 
 ¿Alguna vez pensaste si vos sos vos o sos una tulpa de vos mismo? Ahhhhh. Este episodio de Hoy Trasnoche te va a interpelar a muchos niveles.  ¿Querés cine? Hay cine. A Flor y a Calu le gustaron las dos películas de esta semana y te mandan a ver Zola (¿una película basada en un hilo de Twitter?) y The Empty Man. ¿Coyuntura? COYUNTURÍSIMA. Porque nos metemos con la polémica por las declaraciones de James Gunn sobre Martin Scorsese. Además, estamos manejando unos niveles muy altos de conspiración en sangre: Flor nos cuenta un sueño, habla de Florida Man, tulpas y EL REGRESO DE LAFFIE y Calu nos invita a preguntarnos: ¿LUIS VENTURA Y KENDRICK LAMAR SON LA MISMA PERSONA? El título que quedó esta semana: "James Gunn, si Scorsese viene y te dice 'chupame la pija', se la tenés que chupar".
 
 ## [221] - 2021.07.30 - Nganga (59m) [spotify](https://open.spotify.com/episode/4vwF0ZWdMqDqmexfv4mcKA)
 
+* False Positive
+
 Vamos a blanquear algo de entrada: la película de esta semana es una poronga. No un HOY PORONGA, pero sí una poronga. Por eso, Flor y Calu se sacan de encima el yunque de False Positive bien rapidito como para poder conversar de otras cuestiones más interesantes, como la batalla legal entre Scarlett Johansson y Disney, el deseo de Netflix por tener la nueva película de Christopher Nolan, el regreso inesperado de El Exorcista y, de yapa, un asesino serial: la historia de Danny Rolling, el psicópata que inspiró Scream. QUÉ MÁS QUERÉS, QUE LO ESCUCHEMOS POR VOS.
 
 ## [220] - 2021.07.23 - El podcast champagne es así (60m) [spotify](https://open.spotify.com/episode/39SISwGt4QZSjuzzJetf4h)
+
+* The Forever Purge
+
+* Pig
 
 En realidad el título original del episodio era “The Purge After Midnight”, pero no sabíamos si ponerle “12 horas para escuchar Hoy Trasnoche”, “La trasnoche de la expiación”, “Hoy Trasnoche Forever”, o “Purgate escuchando Hoy Trasnoche”. No nos pusimos de acuerdo así que dejamos el que está. ¿En qué estaba? Ah, sí, vos querés saber qué hay en el episodio. Bueno, Flor y Calu vieron DOS PELÍCULAS. SÍ, DOS. Pig, la nueva con Nicolas Cage, y The Forever Purge, la nueva de la purga que es la primera que se llama la purga. Y bueno.
 
 ## [219] - 2021.07.16 - Primos de trineo (83m) [spotify](https://open.spotify.com/episode/3UZz0nYIoxcOAooKbIujCQ)
 
+* Gunpowder Milkshake
+
 En este episodio, Flor y Calu hacen un test de BuzzFeed para descubrir si son Flor o Calu. ¿Y vos qué host de Hoy Trasnoche sos? También hay una cantidad ridícula de coyuntura: por qué Nicolas Cage abandonó Hollywood, los telefilms nominados a los Emmy, iguanas que se cogen iguanas de lana, consejos para no ser un asesino serial, el aplausómetro de Cannes y la película sobre el libro de Mariana Enríquez que va a hacer la directora de Censor. Ya sabés: si Hoy Trasnoche dice “esta película”, vos apretá el pomo. Pero justo la película de esta semana no: no nos encantó Gunpowder Milkshake. Además, Flor cuenta la historia del papá hitman de Woody Harrelson. ¡Y Flor y Calu hacen un fascinante descubrimiento! Ellos son… primos de trineo.
 
 ## [218] - 2021.07.09 - Mucha labia (58m) [spotify](https://open.spotify.com/episode/6LqWSa8pv0tqxn6ZFp1LXp)
+
+* No Sudden Move
 
 NO HAY FERIADO QUE PUEDA DETENER A CALU Y A FLOR. El único y mejor podcast del mundo no te deja en banda en el fin de semana largo y arremete con recomendaciones, coyuntura y más... todo, todo, todo, excepto la historia de Laffie, que ya se terminó. Recordamos a Richard Donner, que pasó a mejor vida, esperamos ver pronto la nueva de Paul Verhoeven, que se acaba de estrenar en el Festival de Cannes, vemos la nueva de Steven Soderbergh para HBO Max y debatimos ampliamente sobre formas alternativas de nombrar a la concha. ¡Este episodio de Hoy Trasnoche fue ovacionado de pie durante 45 minutos en Cannes!
 
 ## [217] - 2021.07.02 - ¿Qué onda los monstruos y las conchas? (78m) [spotify](https://open.spotify.com/episode/6sdZjNkg9VTy1ZxWbNnBe8)
 
+* A Quiet Place Part II
+
 Vos sabés que no es oficialmente viernes si no escuchás a Flor y a Calu hablando sobre aguantarse el meo hasta que les duele. En este episodio de Hoy Trasnoche, la dupla número uno del podcast internacional explora el catálogo de HBO Max y opina sobre su oferta de contenidos (y cómo se compara con la de los otros servicios de streaming). La película de la semana es A Quiet Place Part II: ¿les gustó o no les gustó? Obviamente, la saga de la c13nc10l0g14 se niega a terminar, sigue siguiendo y alcanza dos hitos históricos: la Operación Blancanieves y la muerte de su fundador, L. Ron “Laffie” Hubbard. Como si todo esto fuera poco, el regreso de un clásico: la historia de cuando Calo se comió a su hermano. ¡Porque Flor no tiene la exclusividad sobre comerse parientes!
 
 ## [216] - 2021.06.25 - La fueguina más famosa (ahora sí) (86m) [spotify](https://open.spotify.com/episode/0tcARnUKBp8P0M6h25js7q)
+
+* Censor
 
 Flor volvió de su Ushuaia natal MUY cambiada. ¿Cuánto? Vas a tener que escuchar este episodio de Hoy Trasnoche, en el que además nos cuenta todo sobre el raíd mediático que la consagró, ahora sí, como la fueguina más famosa. Como si esto fuera poco, con Calu nos recomiendan Censor, la película que tenés que ver esta semana. ¿Hay coyuntura? Obvio. ¿Termina la saga de Laffie? Eeeeeeeeeeeehhhhh...
 
 ## [215] - 2021.06.18 - Sin Thetans no hay paraíso (87m) [spotify](https://open.spotify.com/episode/0qwIGCHFehfATOgUr7m0j8)
 
+* Shiva Baby
+
 ¡Un episodio súper especial de Hoy Trasnoche, grabado desde dos latitudes de la República Argentina! Mientras Santiago Calori disfruta de su emancipación momentánea de Fiorella Sargenti, la fueguina más famosa regresa a su Ushuaia natal para revalidar su título. Y, de paso, hablan de películas y cienciología. ¡No reparamos en gastos!
 
 ## [214] - 2021.06.11 - Sí, no o tal vez (96m) [spotify](https://open.spotify.com/episode/3miQ8A04yiJozBTUBx8sAx)
+
+* Bo Burnham: Inside
+
+* The Conjuring: The Devil Made Me Do It
 
 ¿UNA HORA Y TREINTA Y CINCO DE HOY TRASNOCHE? Y SÍ. MIRÁ TODO LO QUE TENEMOS PARA HABLAR. Flor y Calu vieron El conjuro 3: El diablo me obligó a hacerlo. Nadie los obligó a hacerlo, pero la vieron igual. La que también vieron es Inside, de Bo Burnham y tienen cosas para decir. COSAS MUY IMPORTANTES PARA DECIR. ¡Pero aguarden, pues aún hay más! No sólo insistimos con la historia de L. Ron "Laffie" Hubbard, que ya lleva ocho (¡ocho!) episodios: también hacemos en vivo el test de personalidad de la cienciología... y tiene DOSCIENTAS preguntas. Es oficial: Hoy Trasnoche ahora es un podcast de divulgación y experimentación.
 
@@ -596,25 +636,39 @@ Flor volvió de su Ushuaia natal MUY cambiada. ¿Cuánto? Vas a tener que escuch
 
 ## [212] - 2021.06.04 - Simulacro de poronga (68m) [spotify](https://open.spotify.com/episode/0QgzKc8v7dJHTSqYLH6DFR)
 
+* Spiral: From the Book of Saw
+
 La garantía de Hoy Trasnoche: UNA PERVERSIÓN POR SEMANA. En el episodio anterior descubriste todo lo que NO querías saber sobre erotismo y pañales. En este capítulo, más discusiones sobre óleo calcáreo y chistes de sadomasoquismo. Además: ¿de qué cuadro argentino son los directores de cine? (¿Guy Ritchie? De Boca.) La película de la semana es Spiral, el nuevo spin-off de El Juego del Miedo. Calu abre su videoclub para que veamos El Abominable Doctor Phibes. Y Flor nos invita a escuchar la anteúltima (!) entrega de su saga sobre L. Ron Hubbard y la c13nc10l0g14.
 
 ## [211] - 2021.05.28 - Me atrasé con el AB/DL (59m) [spotify](https://open.spotify.com/episode/45eBZPw07ADcJNLWElhuin)
+
+* Seance (2021)
 
 Venís a buscar un podcast que hable de cine y te encontrás con un podcast que habla de adultos que usan pañales con fines sexuales. ¡Pero eso no es todo! También se habla de los Oscar 2022, por qué Amazon compró MGM, el lanzamiento de HBO Max... y las aventuras de Paulo Vilouta. La película de la semana es Seance, de Simon Barrett, que va derechito al top ten del año. En el videoclub, Calu nos invita a ver April's Fools Day. Y Flor, obvio, nos trae un capítulo más de la saga de L. Ron "Lafi" Hubbard. SEGUINOS EN SPOTIFY O TE VA A PASAR ALGO TERRIBLE.
 
 ## [210] - 2021.05.21 - Pajas en el desierto (62m) [spotify](https://open.spotify.com/episode/7fz4FqTrcFVFFc5YAaEAQF)
 
+* Oxygen (2021)
+
+* Violation (2020)
+
 Sabemos que vas a pasar el fin de semana adentro, sabemos que necesitás algo para ver que no sea una *oronga. Por eso, en este episodio Flor y Calu te recomiendan no una sino DOS películas: Oxygen, de Alexandre Aja, y Violation, de Dusty Mancinelli y Madeleine Sims-Fewer. Pero pará que eso no es todo: obviamente hay un nuevo capítulo en la saga de L. Ron "Lafi" Hubbard, que ya se perfila como más extensa que la del Chateau Marmont. Y mucha pero mucha #coyuntura.
 
 ## [209] - 2021.05.14 - La caca invisible (54m) [spotify](https://open.spotify.com/episode/05PyA0ma5hxXGH0Jrmlets)
+
+* In the Earth (2021)
 
 NO A LA DROGA, SÍ A HOY TRASNOCHE. Flor y Calu te cuentan qué está pasando con los Golden Globes que parece que ahora todos se desayunaron al mismo tiempo con que HACEN TODO MAL Y HAY QUE CANCELARLOS. La película de la semana es In the Earth, de Ben Wheatley. Y, por supuesto, sigue la saga de L. Ron "Lafi" Hubbard. Este episodio es como el ascensor de El Resplandor... pero sale caca.
 
 ## [208] - 2021.05.07 - Mirá cómo te hago el muertito de Seven (60m) [spotify](https://open.spotify.com/episode/28jwZ3hdUET4GtdKyvwJNb)
 
+* Willy’s Wonderland (2021)
+
 Esta semana nos costó mucho decidirnos sobre cuál iba a ser el título del episodio, así que acá les dejamos los que no fueron: "Mirá lo que es esto, ya me estoy cagando" "Me barrió la flora intestinal" "No puede ni hacer caca solo" Como verán, es un episodio temático. Pero además, Flor y Calu nos traen un montón de #coyuntura, un intento de explicación de la carrera de Nicolas Cage (en ocasión del estreno de su película Willy's Wonderland), un nuevo episodio de la saga de L. Ron Hubbard y una película que tal vez no viste llamada Rolling Thunder, perfumada por el sahumerio de bolas que caracteriza al querido videoclub del tío.
 
 ## [207] - 2021.04.30 - DANIEL NO MORE (68m) [spotify](https://open.spotify.com/episode/2W2dwRnv1ZXZuokl0MvWu3)
+
+* Nobody (2021)
 
 Después de obligarte a ver LA PEOR ENTREGA DE LOS OSCAR DE LA HISTORIA, Flor y Calu vuelven por más... por más de lo mismo, porque en este episodio de nuevo hay portarretratos, videoclub, caprichos y toda la coyuntura más coyuntural que te puedas imaginar. ¡Pero el sombrero es nuevo! Escuchen atentamente este capítulo de Hoy Trasnoche pues SE VIENEN COSITAS.
 
@@ -640,45 +694,75 @@ ESTE ES EL ÚLTIMO EPISODIO EN LA HISTORIA DE HOY TRASNOCHE.   Ahre que todos lo
 
 ## [201] - 2020.12.17 - Para vos las fiestas son como Tinder (56m) [spotify](https://open.spotify.com/episode/6fC4J8fEmb2RAVoNuNq5tX)
 
+* Black Bear (2020)
+
 Para vos, que lo estabas esperando: este episodio incluye el derecho a réplica de Flor por sus polémicas declaraciones sobre los vínculos familiares. Y, por supuesto, tira más leña al fuego para el horror del pobre e indefenso (?) Calu. Incluye el hit "mi vieja es mi hermana". ¡Pero eso no es todo! También hay mucha #coyuntura: todas las noticias que salieron del coso de inversores de Disney y más coletazos del anuncio de HBO MAX. En el portarretratos: las hermanas Angela y Luciana Giussani, creadoras de Diabolik. En la esquina de Los Incas y Torrent: Black Bear. En los caprichos, Flor te cuenta qué era realmente Rosebud en Citizen Kane. Y en el videoclub del tío Calu: Rebels of the Neon God, de Tsai-Ming Liang. Send cartas documento.
 
 ## [200] - 2020.12.10 - A todos nos puede aparecer un hermano (43m) [spotify](https://open.spotify.com/episode/6PnGfqPUu6paKOzkJbO8UT)
+
+* Run (2020)
 
 Si escuchás este podcast por las conversaciones sesudas sobre cine, este episodio es para vos: Flor y Calu hablan sobre Run (la de Hulu con Sarah Paulson que ya podés encontrar en Los Incas y Torrent), Husbands de John Cassavetes, el director italiano Mario Bava y muuuuuucha #coyuntura. Si lo escuchás por las particulares opiniones de Flor sobre vínculos familiares... eeeeeeehhhh... también.
 
 ## [199] - 2020.12.04 - El Ventura de Welles (65m) [spotify](https://open.spotify.com/episode/3FJE31XbqiuN5815lpSTzC)
 
+* Mank (2020)
+
 AH NO LO PODÉS CREER. Compensamos el Hoy Poronga que te fumaste esta semana con un episodio extra dedicado a Mank, la nueva película de David Fincher, sobre la vida y la obra de Herman J. Mankiewicz. COMO SI ESTO FUERA POCO, escuchá qué opinan Flor y Calu sobre la movida de Warner y HBO MAX.
 
 ## [198] - 2020.12.03 - AGNOROP YOH (36m) [spotify](https://open.spotify.com/episode/0EatJAAU4faIkxw1J7Zqb2)
+
+* Tenet (2020)
 
 .ogseir oiporp ut ojab (oidosipe etse áhcucse y) alariM .AGNOROP ADNEMERT SE ,naloN rehpotsirhC ed ,TENET euqroP .on euq lam sonem Y .on ulaC y rolF oreP .elbisop ednarg sám allatnap al ne alrev arap rarepse ereiuq euq ecid euq etneg yaH .rebas a ádna oreP .senic ne orene ne aírdlas euq eceeeeraP .on áca orep odnum led setrap sairav ne ónertse es euq alucílep anu yah euq atluseR .rev A .oneuB
 
 ## [197] - 2020.11.26 - El episodio Mel Gibson (60m) [spotify](https://open.spotify.com/episode/771sKs6x8uA4OUV6Z5U1hO)
 
+* Boss Level (2021)
+
+* Fatman (2020)
+
 EEEEEEEEEEEEEEEEEEEEEEEEEEHHHHHHHHHHH
 
 ## [196] - 2020.11.19 - Bacheo y repavimentación (59m) [spotify](https://open.spotify.com/episode/3YopXfRc6Ac7KVrxIQJLqg)
+
+* His House (2020)
 
 ¡El único podcast de cine que sigue saliendo incluso cuando no hay más cines! Flor y Calu están de regreso y, a pedido del público, vieron His House, una de esas que están en Netflix pero que Netflix no te obliga a ver, básicamente porque es buena. También hablan de las #polémicas declaraciones de David Fincher antes del estreno de Mank, su nueva película, y de la quinta Arma Mortal que se viene. En el portarretratos, el gran Tom Savini. En los caprichos de Flor, Lauren Bacall y Humphrey Bogart. Y en el videoclub del tío, La Mano que Mece la Cuna. ESPACIO DISPONIBLE PARA SPONSORS. AUSPICIE AQUÍ.
 
 ## [195] - 2020.10.29 - Never go full Santiago del Estero (57m) [spotify](https://open.spotify.com/episode/5CR0ZtxeR8ectnmjiFvrzG)
 
+* Borat Subsequent Moviefilm (2020)
+
 ¿Otra vez escuchando un episodio de Hoy Trasnoche? Vos no aprendés más, eh...  En fin. Esta semana, Calu y Flor vieron Borat Subsequent Movie. Y les encantó, ¿para qué mentirte?  También discuten sobre ese rumor de que Netflix va a sacar series para escuchar. No, no podcasts: series para escuchar.  En el portarretratos: George Mihalka, director de My Bloody Valentine (la original de 1981, no la remake).  En el videoclub de Calu: Funny Games, de Michael Haneke (las dos).  Y no te pierdas el estreno de una nueva saga en Los Caprichos de Flor.  Todo esto, por el mismo precio de siempre. Nuestro CBU es BB.SANZO.ONICE.
 
 ## [194] - 2020.10.22 - El glory hole de Hoy Trasnoche (59m) [spotify](https://open.spotify.com/episode/1kE2drQsBDSJRtuSulRFw1)
+
+* The Lie (2018)
+
+* Black Box (2020)
+
+* Evil Eye (2020)
+
+* Nocturne (2020)
 
 Un episodio poco tradicional de Hoy Trasnoche (igual, ¿qué será un episodio tradicional de Hoy Trasnoche?). Flor y Calu vieron no una, ni dos, ni tres, sino CUATRO PELÍCULAS para este capítulo. Todas de la franquicia Welcome to the Blumhouse, ya disponible en Amazon Prime Video. ¿Están buenas? Escuchá y fijate. Además, un debate: ¿qué hace que una película pueda ser considerada "de terror"?
 
 ## [193] - 2020.10.08 - ACÁ VA EL TÍTULO (70m) [spotify](https://open.spotify.com/episode/0FFUOCaWREP6Wx8joX5nii)
 
+* Feels Good Man (2020)
+
 ACÁ VA LA DESCRIPCIÓN
 
 ## [192] - 2020.10.01 - Uf, qué fuerte, man (53m) [spotify](https://open.spotify.com/episode/1qqSikY4pLzo7cgweyaXY9)
 
+* Antebellum (2020)
+
 Ahora dicen que Antebellum es la peor película del año. ¿Será? Flor y Calu llegaron con los puños llenos de verdades (y papas fritas). En el portarretratos: Ernesto de la Cruz, mejor conocido como Weng Weng. En los caprichos de Flor: mitos de Marilyn Monroe. En el videoclub del tío, la tailandesa Shutter. Listo, ya leíste la descripción, no te hace falta escuchar el capítulo.
 
 ## [191] - 2020.09.24 - Cuando Cristian U termine la facultad (57m) [spotify](https://open.spotify.com/episode/12PwiRg6RdRMKJ2fuiJsEG)
+
+* Unpregnant 2020
 
 Después de un pequeño interludio en Twitch (OK BOOMER), Flor y Calu vuelven al viejo y querido Hoy Trasnoche semanal. Bue, """semanal""", vos entendiste. Para este episodio vieron Unpregnant, una de HBO Max que podés encontrar en Los Incas y Torrent. ¿Es buena? Y, no sé... ¿querés que te cuente todo el episodio? Andá a escucharlo, no sé qué hacés leyendo esto.
 
@@ -688,25 +772,39 @@ Esta semana, a pedido del público, Flor y Calu se meten con I'm Thinking of End
 
 ## [189] - 2020.09.03 - Coprófagos unidos (54m) [spotify](https://open.spotify.com/episode/3KAV7u3ZsBKU8I8ioe189a)
 
+* She Dies Tomorrow (2020)
+
 HOY TRASNOCHE RETURNS. Después de una inexplicable (e inexplicada) ausencia de varias semanas, Flor y Calu vuelven a tu vida para llenarla de cine. Se ponen al día con lo que estuvo pasando desde el último episodio y le ponen play a She Dies Tomorrow, de Amy Seimetz. Flor trajo carpinchos en forma de la legendaria actriz Carole Lombard. En el videoclub: So I Married and Axe Murderer, de Thomas Schlamme. Y en el portarretratos, Juan Piquer Simón, director de Mil gritos tiene la noche y Slugs, muerte viscosa. DISFRUTÁ ESTE EPISODIO PORQUE ANDÁ A SABER CUÁNDO HAY MÁS.
 
 ## [188] - 2020.08.13 - ¡Una ardilla embalsamada con trajecito de marinero! (66m) [spotify](https://open.spotify.com/episode/31Hes8i4tdexjxi7tbDet2)
+
+* You Don’t Nomi (2019)
 
 ¡Hoy Trasnoche va al autocine! O tal vez no, porque Flor y Calu debaten si esta nueva manera de ir a ver películas puede prosperar o qué. Esta semana en la esquina de Los Incas y Torrent se encontraron con You Don't Nomi, el documental sobre Showgirls. Discuten sobre el documental y discuten sobre Showgirls. En el portarretratos: la productora italiana Marina Cicogna. En los carpinchos de Flor, descubrí quiénes eran los famosos Warner Bros. Y en el videoclub de Calu: La Ceremonia, de Claude Chabrol.
 
 ## [187] - 2020.08.06 - Vos Tenet que arrepentirte de lo que dijiste (55m) [spotify](https://open.spotify.com/episode/2XkjWPPb8FQnld169XjRZT)
 
+* Host (2020)
+
 ¿Querés saber de qué hablamos en este capítulo de Hoy Trasnoche? Y BUENO VAS A TENER QUE ESCUCHARLO.
 
 ## [186] - 2020.07.30 - Elige tu propio abogado mediático (65m) [spotify](https://open.spotify.com/episode/69bQzTT5nBDaoqk4BeiKbE)
+
+* The Rental (2020)
 
 ¡Esta semana SÍ salió Hoy Trasnoche! Un episodio cargado de magia: Calu y Flor vieron The Rental, el debut de Dave Franco como director, y analizan las novedades sobre el futuro del cine post-pandemia. También, Flor despide a Olivia de Havilland y nos trae una nueva saga familiar: la de Ingrid Bergman y Roberto Rossellini. En el videoclub, Calu nos ofrece ver Body Heat (Cuerpos Ardientes). Y en el portarretratos: el actor de El Padrino que vino a filmar a la Argentina con Mónica Cahen D'Anvers (!). TODO PUEDE PASAR EN ESTE NUEVO HOY TRASNOCHE.
 
 ## [185] - 2020.07.16 - Matrix es una poronga (71m) [spotify](https://open.spotify.com/episode/0BmugVXgyiVgFF1HU2hwUc)
 
+* Palm Springs (2020)
+
+* Relic (2020)
+
 Si hay puristas que estrenan sus trailers en Fortnite... ¿Hollywood tiene un plan B? ¿Cuántos streamings estamos dispuestos a pagar? Esta semana Flor y el tío Calu vieron Palm Springs y Relic. Desde el portarretratos nos mira Leslie Nielsen. En el videoclub de Calo, la segunda película de los hermanos Coen: “Educando a Arizona”. Y Flor cuenta las historias de criaturas que en realidad son hijos de famosos, pero capaz no lo sabías porque les fue bien y ellos son famosos también.
 
 ## [184] - 2020.07.09 - Una media llena de rulemanes (48m) [spotify](https://open.spotify.com/episode/4TtYQFluyiAcvOyPis9cvG)
+
+* Babyteeth (2019)
 
 NINGÚN FERIADO VA A DETENER A CALU Y FLOR EN SU AFÁN DE LLENARTE LA CABEZA DE PENSAMIENTOS ESPURIOS Y PELÍCULAS QUE NADIE VIO. Esta semana, vieron Babyteeth, una coming-of-age australiana. Desde el portarretratos, sonríe el gran Richard Pryor. En los caprichos de Flor: el escándalo de Fatty Arbuckle y Virginia Rappe. Y en el videoclub de Calu: Silvia Prieto, de Martín Rejtman.
 
@@ -716,17 +814,27 @@ Sus detractores intentaron a toda costa evitar que salga este episodio pero ACÁ
 
 ## [182] - 2020.06.25 - El café de la menstruación (49m) [spotify](https://open.spotify.com/episode/7cEkxFbsLza0v0N1yjq5V0)
 
+* Da 5 Bloods
+
 ¡Un episodio #notable de Hoy Trasnoche! Calu y Flor se indignaron con 5 Sangres, la nueva de Spike Lee para Netflix. Flor vino con los puños llenos de verdades contra la prensa que quiere cancelar películas, Calu nos recomienda When a Stranger Calls y April's Fools Day. Y desde el portarretratos, sonríe un tal Gianni Garko. Ya van a ver por qué.
 
 ## [181] - 2020.06.11 - Colitis crónica (55m) [spotify](https://open.spotify.com/episode/6GLNFfyFaTQE3yR8W2oVus)
+
+* Shirley
 
 QUÉ ESTÁ PASANDO CÓMO QUE ES JUEVES Y SALIÓ UN NUEVO EPISODIO DE HOY TRASNOCHE ACASO ES VIERNES???? No, no es viernes: es jueves. Bah, si estás escuchando en tiempo real. Si no, toda esta introducción no tiene sentido. Lo importante: ahora Hoy Trasnoche SALE LOS JUEVES. Y en este episodio, Calu y Flor vieron Shirley, la biopic sobre Shirley Jackson con Elisabeth Moss. Además, la polémica por Lo que el Viento se Llevó en HBO Max. En el portarretratos: el actor David Patrick Kelly. Y en el videoclub: Becky.
 
 ## [180] - 2020.06.05 - El babyshower de Rosemary (48m) [spotify](https://open.spotify.com/episode/7dmoEIdrhym3lve8jw85zg)
 
+* A Good Woman Is Hard to  Find
+
 A esta altura ya sabemos que vas a escuchar Hoy Trasnoche aunque hablemos de Soledad y Larguirucho. De hecho, SEGURAMENTE escucharías un episodio sobre Soledad y Larguirucho. Pero igual te vamos a contar qué hay esta semana. Flor y Calu vieron A Good Woman Is Hard to Find, de Abner Pastoll. En el portarretratos, tenemos a Chesty Morgan, por dos buenas razones. En los Caprichos de Flor: los cien viajes de ácido de Cary Grant (!). Y en el videoclub de Calu: The Player, de Robert Altman.
 
 ## [179] - 2020.05.29 - Botón de desver (52m) [spotify](https://open.spotify.com/episode/1cxIFDgXc34iU6FXuxhmbA)
+
+* Why Don't You Just Die!
+
+* Intuition
 
 La vida es horrible y algunas películas también, por eso este episodio de Hoy Trasnoche contiene escenas muy explícitas de indignación de nuestros héroes, Calu y Flor. ¿Por qué? Porque esta semana vieron no una sino DOS porongas y vas a tener que escuchar el capítulo para descubrir cuáles son. En el portarretratos, el actor David Hess. Flor se encapricha con la historia de la película Freaks. Y Calu abre su videoclub para recomendarnos Las Fotos Prohibidas de una Mujer Decente.
 
@@ -760,6 +868,10 @@ Todos los días, una nueva recomendación de Calu y Flor, para que nunca más di
 
 ## [171] - 2020.05.22 - Hay una dignidad en el pañal (51m) [spotify](https://open.spotify.com/episode/6OjYjSf3ZUM78V6HcUgmSX)
 
+* Buffaloed
+
+* Capone
+
 EL EVENTO PODCASTERO MÁS ESPERADO DE LA DÉCADA FINALMENTE ESTÁ AQUÍ: un nuevo episodio de Hoy Trasnoche, igual que todos los otros viernes. Esta semana, Calu y Flor vieron Buffaloed y Capone. En el portarretratos, brilla la actriz rusa Olga Baclanova. En los caprichos de Flor: el nuevo documental sobre la misteriosa muerte de Natalie Wood. En el videoclub de Calu: Salesman, de David y Albert Maysles. Y sí, se habla del Snyder Cut.
 
 ## [170] - 2020.05.22 - Hoy Trasnoche Diario: Hustlers (8m) [spotify](https://open.spotify.com/episode/5p5LKZjbyk3BwhPx3gxsQM)
@@ -791,6 +903,8 @@ Hoy recomienda Flor.
 Una que le salió bien a Kevin Smith.
 
 ## [163] - 2020.05.15 - La corneta fantasmagórica (51m) [spotify](https://open.spotify.com/episode/093BH56wnp7VzVsGVd3Ejh)
+
+* The Assistant
 
 ¡Es viernes y tu cuerpo NO lo sabe! Por eso, acá está el nuevo episodio del clásico, viejo, querido y semanal Hoy Trasnoche. Para que busques en Los Incas y Torrent: The Assistant. En el portarretratos: Charles Dennis Buchinsky. ¿Quién? Tal vez lo conozcas como Charles Bronson. En los caprichos de Flor, los fantasmas del Hotel Roosevelt. Y en el videoclub de Calu: Hard Times, de Walter Hill.
 
@@ -856,6 +970,8 @@ Un clásico ignorado del director de El Exorcista.
 
 ## [147] - 2020.05.01 - ¿Qué carpincho sos? (52m) [spotify](https://open.spotify.com/episode/1bEqD0j3ne6r9VHAEgMl2I)
 
+* Beastie Boys Story (2020)
+
 ¡Cuando todo lo demás parece perdido, llegan Calu y Flor al rescate con un nuevo episodio de Hoy Trasnoche! Esta semana se meten con el híbrido entre charla TED y stand-up que es La Historia de los Beastie Boys y lo empaquetan con The Punk Singer para que cantes y bailes mientras todo se incendia. THIS IS FINE.
 
 ## [146] - 2020.05.01 - Hoy Trasnoche Diario: A Simple Favor (5m) [spotify](https://open.spotify.com/episode/6QXiEX8jxRvW4PnnFw64qL)
@@ -887,6 +1003,8 @@ Al Pacino fuera de control.
 (La de John Waters.)
 
 ## [139] - 2020.04.24 - Caca y sangre (46m) [spotify](https://open.spotify.com/episode/2vBiQoovjEAW9sjLQJr5q6)
+
+* Butt Boy (2019)
 
 ¡Nuevo episodio del viejo y querido Hoy Trasnoche semanal! Como sigue sin haber cines abiertos y por lo tanto no hay estrenos, Calu y Flor te invitan a ver Butt Boy, una película que es tan Hoy Trasnoche que duele. En el portarretratos: John Larroquette. En los caprichos: última parte de la saga del Chateau Marmont, protagonizada por Lindsay Lohan. Y en el videoclub: Un condenado a muerte se escapa, de Robert Bresson.
 
@@ -984,6 +1102,8 @@ Dos documentales y un poco de Verano del '98.
 
 ## [115] - 2020.04.03 - One Supón a Time in Hoy Trasnoche (45m) [spotify](https://open.spotify.com/episode/5haTR0b8pu55OnOWc33h98)
 
+* Swallow
+
 El sueño de Calu y Flor se cumplió y finalmente pueden hacer este podcast sin compartir el mismo espacio físico. En este episodio: Swallow, de Carlo Mirabella-Davis. En el portarretratos: Lloyd Kaufman. En los caprichos de Flor: la muerte de John Belushi. Y en el videoclub del tío Calu: Un Flic, de Jean-Pierre Melville.
 
 ## [114] - 2020.04.03 - Hoy Trasnoche Diario: Hot Fuzz + Heat (9m) [spotify](https://open.spotify.com/episode/175towPLhBvhD81WIYx8JY)
@@ -1016,6 +1136,8 @@ DECIME CÓMO HICIERON PARA QUE CALU Y FLOR LABUREN UN DOMINGO. Hoy: Battle Royal
 
 ## [107] - 2020.03.27 - Este tampoco es el episodio 100 (51m) [spotify](https://open.spotify.com/episode/7jZcaBi6bL2gkwO6TJMP1k)
 
+* The Hunt
+
 NO ES EL EPISODIO 100. NO ES HOY TRASNOCHE DIARIO. ES UN EPISODIO NORMAL DE HOY TRASNOCHE. Bueno... "normal". Flor y Calu se juntaron A DISTANCIA, cada uno en su casas, para repasar qué se estuvo estrenando. O sea, nada. Por eso, nuevamente empujados a la delincuencia, comentan The Hunt (La Cacería). Hay portarretratos y está Brian de Palma. Hay caprichos de Flor y está Howard Hughes. Hay videoclub y está Out of the Past. Quedate en tu casa, escuchá Hoy Trasnoche.
 
 ## [106] - 2020.03.27 - Hoy Trasnoche Diario: Gone Girl (9m) [spotify](https://open.spotify.com/episode/3NsAONvAtDxX0thtfFo9BR)
@@ -1040,13 +1162,21 @@ AH... ¿¿¿ERA POSTA LO DE QUE SALÍAN TODOS LOS DÍAS??? En este segundo Hoy T
 
 ## [101] - 2020.03.20 - HOY CORONGA (96m) [spotify](https://open.spotify.com/episode/6ITrKiYfcqmUKJWfH5vgiz)
 
+* Verotika
+
 CUARENTENA ATR CALU Y FLOR TE INVITAN A VER LA QUE ACASO SEA LA PEOR PELÍCULA DEL SIGLO VEROTIKA, DE GLENN DANZIG ES ASÍ: BUSCALA EN ***LOS INCAS Y TORRENT*** Y PONÉ PLAY PARA VERLA JUNTO A TUS ÍDOLOS DE POSTA PUNTO COM
 
 ## [100] - 2020.03.06 - Hoy Trastorrent Vol. 2 (56m) [spotify](https://open.spotify.com/episode/7MMrz8RybGYJaHPOYf0p1u)
 
+* Color Out of Space
+
+* Queen & Slim
+
 La piratería es ilegal, amiguites. No intenten en sus casas nada de lo que dicen Calu y Flor. DICHO ESO: ESTA SEMANA LOS ESTRENOS SON TAN CHOTOS QUE SACAMOS UN NUEVO EPISODIO DE HOY TRASTORRENT. ¿Qué tenés para ver? Color Out of Space, de Richard Stanley, y Queen & Slim, de Melina Matsoukas. ¿Y Flor sigue hablando de Natalie Wood? La respuesta no te sorprenderá.
 
 ## [99] - 2020.02.28 - Los perritos y la falopa (61m) [spotify](https://open.spotify.com/episode/3a5iFwBQe9KXEm8XNMxTH4)
+
+* The Invisible Man
 
 BIENVENIDOS AL EPISODIO NUEVO 768 DE LA TEMPORADA 43 DE HOY TRASNOCHE HOY: EL HOMBRE INVISIBLE LINDA BLAIR EN EL PORTARRETRATOS KIRK DOUGLAS Y NATALIE WOOD EN LOS CAPRICHOS DE FLOR UN GATO EN EL CEREBRO EN EL VIDEOCLUB DE CALU Y MÁS. ESCUCHALO ANTES DE QUE SE ECHE A PERDER EL CADÁVER DE DANIELITO DALE
 
@@ -1072,25 +1202,43 @@ THIS IS HOY TRASNOCHE. El único podcast de cine de POSTA PUNTO COM, con Santiag
 
 ## [93] - 2019.11.29 - La gente pide poronga seguido (79m) [spotify](https://open.spotify.com/episode/2FQrV7H1bkA1IU6loY5XCH)
 
+* La casa en la playa
+
 Hoy Trasnoche es el “otro” podcast de cine, para los que saben que hay mucho más que las películas de la semana. En este episodio: un nuevo “Hoy Poronga”. Flor y el tío Calu ven y comentan en vivo “La casa en la playa”.
 
 ## [92] - 2019.11.22 - Qué lindo que es el cine, la concha de mi madre (60m) [spotify](https://open.spotify.com/episode/1DVrVHn1U9OE2UMbCVvYMP)
+
+* The Irishman
 
 Hoy Trasnoche es "el otro" podcast de cine, para los que saben que hay mucho más que las películas de la semana. Conducen Santiago Calori y Fiorella Sargenti. Esta semana: El Irlandés. En el portarretratos: David Cronenberg. En los caprichos de Flor: el trueque entre De Niro y Pacino por El Padrino. Y en el videoclub de Calu: And soon the darkness (1970).
 
 ## [91] - 2019.11.01 - Jorge Corona negro (61m) [spotify](https://open.spotify.com/episode/53CWQ9hGBLN04gpvjuKUme)
 
+* Terminator: Dark Fate
+
+* Dolemite Is My Name (2019)
+
 Hoy Trasnoche es el "otro" podcast de cine, para los que saben que hay mucho más que las películas de la semana. Conducen Santiago Calori y Fiorella Sargenti. Esta semana: la nueva de Terminator, Dolemite Is My Name y blaxploitaition. En los caprichos de Flor: RIP Robert Evans. Y en el portarretratos: Herk Harvey.
 
 ## [90] - 2019.10.25 - Hoy Poronga Vol. 2 (39m) [spotify](https://open.spotify.com/episode/6j1TkNXmVec8G7MU5KcwTL)
+
+* Zombieland: Double Tap (2019)
+
+* The Laundromat
 
 Esta semana en Hoy Trasnoche: un dildo de dos cabezas. Fiorella Sargenti y Santiago Calori presentan un nuevo especial de Hoy Poronga, dedicado a Zombieland: Tiro de Gracia y La Lavandería.
 
 ## [89] - 2019.10.18 - Es tan cierto que es verdad (58m) [spotify](https://open.spotify.com/episode/0XcxOTrKEuqHVsHlLf0Zf8)
 
+* Parasite (2019)
+
 Hoy Trasnoche es el "otro" podcast de cine, para los que saben que hay mucho más que las películas de la semana. Conducen Santiago Calori y Fiorella Sargenti. Esta semana: Parasite, de Bong Joon-ho. Además: los 20 años de El Club de la Pelea. En los caprichos de Flor: Evita y Madonna en la Argentina. Y en el videoclub de Calo: Bloodline.
 
 ## [88] - 2019.10.11 - Antes del trasnochecer (58m) [spotify](https://open.spotify.com/episode/28JwtuGN3Cs0BSaPpGmRJv)
+
+* Rambo: Last Blood (2019)
+
+* Monos (2019)
 
 Hoy Trasnoche es el "otro" podcast de cine, para los que saben que hay mucho más que las películas de la semana. Conducen Santiago Calori y Fiorella Sargenti. Esta semana: sigue el debate sobre EL BROMAS y se estrenaron Rambo: Last Blood y Monos, de Alejandro Landes. En los caprichos de Flor: la leyenda del Gramercy Hotel. En el videoclub de Calo: The Art of Self-Defense, de Riley Stearns.
 
