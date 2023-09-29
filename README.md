@@ -16,6 +16,8 @@ Con los actores de paro los directores siguen hablando, hablando y hablando. Por
 
 ## [311] - 2023.09.01 - 114: Moyano o Mad Max (81m) [spotify](https://open.spotify.com/episode/72f2za90l1aEwCUyxOW7ma)
 
+* Talk to me (2023)
+
 Calo y Flor día se decidieron y vieron eeesssa película que tanto pedían: Háblame (Talk to Me) de Danny y Michael Philippou. 🤝 También encontrás alguna que otra charla sobre edadismo en la industria del entretenimiento, patrones de belleza destructivos, billonarios tristes y productores con delirio mesiánico. 🐐 Si querés más de todo esto pasá por hoytrasnoche.com 🐐
 
 ## [310] - 2023.08.25 - 113: La que le sacó la nariz a Voldemort (79m) [spotify](https://open.spotify.com/episode/7nK48l3gOkoAHoImA3Bkrq)
@@ -23,6 +25,10 @@ Calo y Flor día se decidieron y vieron eeesssa película que tanto pedían: Há
 Este es un episodio de Hoy Trasnoche en el que SE HABLA DE UNA PELÍCULA DE SUPERHÉROES QUÉ ESTÁ PASANDO DIOS. Sí, es Blue Beetle pero a la vez más que eso porque también charlamos sobre Flash, James Gunn, cómo desvarió Marvel y más. Para saber si es joda o no vas a tener que escuchar.
 
 ## [309] - 2023.08.18 - 112: Lars Von Trier es Gerardo Romano con talento (81m) [spotify](https://open.spotify.com/episode/5t6rd6KmCtJ1Fhrm9w2V2V)
+
+* Bama Rush (2023)
+
+* Beyond Human Nature (2023)
 
 Esta semana tocó etiqueta “documental”: Bama Rush (2023) de Rachel Fleit y Beyond Human Nature (2023) de Michael Neelsen.  Como cuestiones varias también se charla sobre el reclamo sindical de la actriz de La Monja por el uso de su imagen, la polémica por la nariz de Bradley Cooper y la performance busca novia de Lars Von Trier. Si te gusta este podcast podés ayudar a que siga existiendo suscribiéndote en hoytrasnoche.com, ¿exagerados y tremendistas? Pero claro.
 
@@ -32,57 +38,89 @@ En este Ayer Trasnoche Santiago Calori y Fiorella Sargenti (aka Calu y Flor) hom
 
 ## [307] - 2023.08.04 - 110: Ese es el problema de la democracia (87m) [spotify](https://open.spotify.com/episode/1yiU0DjQjfnL5uOHrQfqSW)
 
+* Sound of Freedom (2023)
+
+* Insidious: The Red Door (2023)
+
 En un episodio maratónico Calu y Flor se meten, de una forma u otra, con dos películas.  Hubo indignación, confusión y más pero no te vamos a decir cuales son, vas a tener que darle play.  Bah, no, a ver, pará, no digas nada pero una de ellas es La Noche del Demonio: La Puerta Roja, de Patrick Wilson. Por el mismo precio también te llevás una actualización sobre la huelga de actores y guionistas en Hollywood y una mini guerra civil: El Conjuro vs Insidious.
 
 ## [306] - 2023.07.28 - 109: El festival de los arruinaguacho (73m) [spotify](https://open.spotify.com/episode/5KvDc261Drt3VL7NfkavHi)
+
+* Limbo (2023)
 
 Calu (Santiago Calori) y Flor (Fio Sargenti) vieron Limbo, película australiana de Ivan Sen. Probablemente no la tenías en el radas, no te preocupes, es normal. Sigue algún que otro debate y cuestión sobre Barbenheimer, la huelga y ciertas invitaciones al Festival de Venecia. AH, ADEMÁS HAY UN ANUNCIO MEGA ULTRA CLAVE.
 
 ## [305] - 2023.07.21 - 108: Parece un video de Brazzers (93m) [spotify](https://open.spotify.com/episode/2yAid3vEBF9KDjlpfrIiqB)
 
+* Oppenheimer (2023)
+
+* Barbie (2023)
+
 ¿Hace cuánto que Flor viene hablando de Barbenheimer? LLEGÓ, NO TE LA PODÉS CREER. Obvio que hubo doble función y en este episodio se habla de Barbie de Greta Gerwig y Oppenheimer de Christopher Nolan. ¿Valió la pena la epopeya? No sé, escuchá que es gratis. La coyuntura sigue invadida por el Hollywood piquetero pero hay alguna que otra cosa más. Y VOLVIÓ SANTIAGO CALORI, SÍ, TODO ASÍ CAPS LOCK.
 
 ## [304] - 2023.07.14 - El Show de Flor: Meando las puertas de Versalles (73m) [spotify](https://open.spotify.com/episode/7GHd0Q0hizxaxm78Ys16xm)
+
+* Asteroid City (2023)
 
 Para el último episodio de esta tanda de especiales sin Santiago Calori Flor invitó a Guillermo Houdin -Mow-, bajista de Los Antiguos y gran ser humano en general, también conocido como su novio. La película elegida es Asteroid City (2023) de Wes Anderson y claro pero por supuesto cómo que no se habla largo y tendido del momento histórico que está atravesando Hollywood con la huelga de actores. Gracias por escuchar, ha sido un placer. 
 
 ## [303] - 2023.07.07 - El Show de Flor: Ella tosió, yo tosí y nadie rio (75m) [spotify](https://open.spotify.com/episode/7c3uPK1tTnNXhvIx8UUk9a)
 
+* Sanctuary (2022)
+
 Se ha dejado absolutamente todo para grabar este episodio así que más vale que lo escuches. Con faringitis y todo Flor grabó como se pudo porque sino después dicen que no es viernes si no hay Hoy Trasnoche y todo eso. Tenemos dos películas y dos invitados: Fer Mugica y José Tripodero. Periodistas, críticos de cine y colaboradores de la versión vip de Míralos Morir, el newsletter de un tal Santiago Calori. Lujo.  Hablamos de Are You There God? It's Me, Margaret (dirigida por Kelly Fremon Craig) y Sanctuary (Zachary Wigon). Coyuntura a rolete. Aparecen Russell Crowe, una versión "a lo Spike Jonze" del dinosaurio Barney, algo de historia de Warner Bros. y varias cuestiones más.  ¿Volvió Oti? Ah, misterio. 
 
 ## [302] - 2023.07.01 - El Show de Flor: qué pingo será un dial (72m) [spotify](https://open.spotify.com/episode/3RltL2ftFUQRBuh3aQRjsa)
+
+* Indiana Jones and the Dial of Destiny (2023)
 
 HOY ES VIER... bueno, ya saben. Flor recibe a su amiga Eli -tal vez la conozcan como @elisblack- para hablar de Indiana Jones y el Dial del Destino, dirigida por James Mangold. Tenemos a Hollywood que tal vez, quizás, quién sabe entra en una de las mayores crisis de su historia y la niñera Fran Drescher es la jugadora clave, un montón de argentinos que se suman para votar en los Oscar, John Landis y el estado de la industria más varias cosas más. Cómo te gustaría estar pagando esto para poder exigir que te devuelvan la guita hoy, eh, cómo sos. Andá a escuchar, querés. 
 
 ## [301] - 2023.06.23 - El Show de Flor: Wes Anderson no quiere ver tu video de mierda (75m) [spotify](https://open.spotify.com/episode/2802DRJIbSVWV5OMBkIw7d)
 
+* BlackBerry (2023)
+
 Santiago Calori decidió abandonar el país por motivos desconocidos, así que durante algunas semanas Hoy Trasnoche se convierte en El Show de Flor (y Oti, claro). En esta ocasión la acompaña un viejo amigo de la casa conocido como Luciano Banchero. La película seleccionada es Blackberry de Matt Johnson. No te hagas el que no sabés qué es un Blackberry porque vemos la demográfica así que SABEMOS TU EDAD.  En coyuntura hay una selección intensa con algunos personajes clásicos como Francis Ford Coppola, Wes Anderson y Christopher Nolan pero también aparece esta cuestión de que vendieron los Globos de Oro y la inteligencia artificial puede convertirse en nuestro nuevo dios todopoderoso. Ahora sólo te queda darle play. Gracias. 
 
 ## [300] - 2023.06.16 - 107: Tengo que hurgar un perro en Uruguay (82m) [spotify](https://open.spotify.com/episode/5pIjiSWwFOmpAJT7yvlVYf)
+
+* Beau Is Afraid (2023)
 
 ¡Llegó el día! Flor y Calu finalmente hablan de The Flash, la película de superhéroes más esperada delAHUDUEJK NO.  La que sí vieron es Beau is Afraid, la tercera de Ari Aster y bueno... sintieron muchas cosas, ¿qué decirte? Ya lo vas a escuchar. James Cameron estuvo en la Argentina y medio que se sintió emosidoengañado, a Netflix le salió bien lo de las contraseñas, Ben Affleck y Matt Damon vs Trump. Hay de todo, vos dale play, estrellitas y todas esas cosas así comemos caliente. Gracias.
 
 ## [299] - 2023.06.09 - 106: Con el CBU abierto (71m) [spotify](https://open.spotify.com/episode/5sZ8ZZAygLI3aTwh1gg9zm)
 
+* Master Gardener (2022)
+
 Bienvenidos a un nuevo episodio de esto que probablemente sea el único podcast de cine y cosas del mundo mundial. En esta ocasión Santiago Calori y Fiorella Sargenti (más Oti) charlan sobre la nueva película de Paul Schrader: El Maestro Jardinero (Master Gardener, 2023). Además tenés algún que otro devuelvan la guita, La Niñera sindicalista, cine y censura, Nolan y Oppenheimer, etc. Vos le das play y nosotros decimos gracias.
 
 ## [298] - 2023.06.02 - 105: Un mondongo adentro de una pelota (79m) [spotify](https://open.spotify.com/episode/0RdEqcDC7SS5kBGcqKaPCs)
+
+* Reality (2023)
 
 Tarantino tuvo una semana movida y este podcast también. La cantidad de coyuntura y material es realmente impresionante. Fiorella Sargenti (Flor) y Santiago Calori (Calu) también te traen una película, claro. Es Reality, dirigida por Tina Satter y protagonizada por Sydney Sweeney.  Play y coso.
 
 ## [297] - 2023.05.26 - 104: Le sacaste el riñón a uno que necesitaba el trasplante (92m) [spotify](https://open.spotify.com/episode/6YYBV3AleVgpnZYBVD2hyA)
 
+* Manticore (2022)
+
 Santiago Calori y Fiorella Sargenti investigan sesudamente el misterio detrás de las extensas ovaciones de pie en Cannes en un nuevo y apasionante episodio del único podcast del mundo mundial.  Después hablan de alguna que otra cosita hasta que llega la película elegida: Mantícora, del español Carlos Vermut. Ahora te toca darle play y hacerlos millonarios. Listo, buenísimo.
 
 ## [296] - 2023.05.19 - 103: Greta Thunberg es la Juan Carr de ellos (72m) [spotify](https://open.spotify.com/episode/6auoxtLgQ0SrKOGXSU804y)
+
+* Sisu (2022)
 
 -¿La película? Sisu, una especie de John Wick finlandesa.  Pero qué decirles, hay una parva de cosas extra, que van desde Johnny Depp en Cannes, la pelea de Disney con el gobernador de Florida y, por algún motivo misterios, bandas punk con ideologías reprochables. No te lo puedo explicar porque no vas a entender así que dale play y eso.
 
 ## [295] - 2023.05.12 - 102: Menos timing que el Mono Mario (78m) [spotify](https://open.spotify.com/episode/2XpHAEMXooZxrMGavMvgCX)
 
+* To Catch a Killer (2023)
+
 ¿Ya vieron Misántropo, la nueva película de Damián Szifrón?  Bueno, Santiago Calori y Fiorella Sargenti sí (ah, re serios, qué les pasaba).  Atención porque puede que haya pleito. Obviamente siguen con lo de la huelga de guionistas de Hollywood, que está cada vez más picante. Escuchalo o te spoilean El Padrino. (Nota al pie: este podcast no comulga con esa definición de spoiler)
 
 ## [294] - 2023.05.05 - 101: Es como caminar sobre cáscaras de huevo (87m) [spotify](https://open.spotify.com/episode/2idVUeOL7ohSuKvQYfYQd5)
+
+* The Pope's Exorcist
 
 Como te veníamos adelantando (ay, ellos) arrancó la huelga del sindicato de guionistas en Hollywood. En este episodio explicamos un poco de qué se trata, qué pasó la última vez y qué consecuencias podría traer esta. Tenemos la aparición de una nueva nepobaby, un devuelvan la guita local pero posiblemente fake y Roman Polanski (¡otra vez!). Además Calu y Flor vieron la de Gladiador Exorcista, también conocida como El Exorcista del Papa, y puede que haya controversia y polémica. AH PERO VAS A TENER QUE ESCUCHAR PARA ENTERARTE.
 
@@ -92,61 +130,103 @@ Llegó. Acá lo tenés. ¿Qué pasa? ¿Tenés miedo de darle play?
 
 ## [292] - 2023.04.28 - Tuvieron dos hijos influencers de cine (80m) [spotify](https://open.spotify.com/episode/6xCTkH8XdUuLIJJulGodKC)
 
+* Evil Dead Rise
+
+* Renfield
+
 Exceso de coyuntura, exceso de gore mainstream. Calu y Flor (aka Santiago Calori y Fio Sargenti) vieron Renfield y Evil Dead: El Despertar. ¿Sensaciones? Vas a tener escuchar, pero claro.  En cuanto a lo noticioso acá vas a encontrar algo sobre las nuevas estrategias de distribución en Hollywood, qué es CinemaCon, dos hermanos españoles que reclaman que los dejen casarse, Alec Baldwin y una especie de comedia meta con estrellas “polémicas” y más. Eso es todo por ahora. Gracias.
 
 ## [291] - 2023.04.21 - El Aleph con Pablo y Pachu (78m) [spotify](https://open.spotify.com/episode/6P0sr6E7pixtaNnjdfUzKP)
+
+* Inside
 
 Este podcast elige una película por semana y se compromete a dedicarle el episodio aunque no le haya gustado a Calu y Flor. Hay semanas en las que sale bien, hay semanas en las que sale mal. ADIVINÁ QUÉ PASÓ. No pensamos decirles el título ni nada, vas a tener que darle play y chusmear vos mismo. Ah, y no hay coyuntura porque Fio Sargenti decidió hacer paro como los guionistas de Hollywood. O tal vez sí hay. Bueno, no sabemos bien, fijate. Si te interesa todo esto seguimos en @filmejuntoalpueblo (Instagram). Nos vemos el viernes que viene… probablemente, qué sé yo, ni idea, puede ser.
 
 ## [290] - 2023.04.14 - Puntos suspensivos es sinónimo de coger (80m) [spotify](https://open.spotify.com/episode/3oA0P6ZOCi2tyKMFP7Nj0C)
 
+* Air
+
 ¿Es acaso este un podcast de zapatillas? No, pero esta vez un poco sí. Flor y Calu hablan de Air, la nueva película de Ben Affleck en la que cuentan la historia detrás del arreglo entre Nike y Michael Jordan.  La coyuntura nos lleva para el lado de HBO Max (#blessed) y el debate de qué es premium y qué no, por qué Tarantino no pone escenas de sexo en sus películas y cuán argentina es realmente la ex de DiCaprio. Woody Harrelson y Matthew McConaughey: ¿descubrieron que son hermanos bastardos o simplemente están chiveando un nuevo curro? Temazos la verdad, eh. Nos escuchás acá y podés seguirnos en Instagram si buscás @filmejuntoalpueblo.
 
 ## [289] - 2023.04.07 - En ninguna situación el esperma de un hijo debe estar adentro de una madre (87m) [spotify](https://open.spotify.com/episode/7a6llfoTFjyOThel9KxRZg)
+
+* Kill Boksoon
 
 Hola, somos un podcast de cine. Santiago Calori y Fiorella Sargenti hablan de una película en particular, de algunas cuestiones noticiosas y algún que otro capricho. A veces sale bien, a veces no tanto. En este episodio comentan Boksoon Debe Morir, una producción coreana distribuida por Netflix. En el picoteo coyunturesco aparecen John Leguizamo y Super Mario, cambios en las reglas de los Oscar, Gwyneth Paltro y el juicio más blanco de la historia, el tráiler de Barbie y andá a saber qué cosa más.  Ojo, George Lucas, porque en El Club de los Divorciados comienza su historia de amor y desamor con Marcia, su primera esposa. Play, estrellitas, corazón, guita y todo eso. Gracias.
 
 ## [288] - 2023.03.31 - Podés ver Elsa y Fred o podés ver John Wick 4 (80m) [spotify](https://open.spotify.com/episode/7i6w2DQ1cVydQqg005KquV)
 
+* Soft & Quiet
+
+* John Wick: Chapter 4
+
 Santiago Calori y Fiorella Sargenti en un sentido homenaje a Keanu Reeves y su legado como hombre de acción. O sea, hablan de John Wick. La nueva, la saga entera, las influencias y lo que dicen que se viene. La coyuntura es breve pero suculenta: ¿es acaso Argentina la culpable del gran escándalo hollywoodense actual? Victoria Alonso, Marvel y cómo tratar de leer este tipo de noticias. Además hablamos de UNA DE LAS MEJORES PELÍCULAS DEL AÑO, pero vas a tener que escuchar el episodio para enterarte de cuál es. Si querés más vas a Instagram y buscás @filmejuntoalpueblo. Ahora sí, buen provecho.
 
 ## [287] - 2023.03.24 - El buttplug y el juguete de perro son intercambiables (76m) [spotify](https://open.spotify.com/episode/0gmziX1UnNtzahl0hbRtXa)
+
+* Cocaine Bear
 
 AGHJKLLLRRRKASARRRRRR. O sea, traduciendo a Cocaine Bear: ¡al fin viernes, viejo! Hay un nuevo episodio de Hoy Trasnoche con coyuntura por demás suculenta (nueva generación de nepo babies Coppola, Tom Cruise ama una película de la competencia, etc) + Calo y Flor celebrando la llegada de Oso Intoxicado. Caos, humor, gore, ¿qué decirles?  Por acá está el botoncito de play, ya sabés cómo sigue la cosa.
 
 ## [286] - 2023.03.17 - Pobrecita: es bruta (95m) [spotify](https://open.spotify.com/episode/3z6UQciVmiOCY1bffilZ2u)
 
+* Missing
+
 ¿Te acordás de esa que se llamaba Searching? Bueno, ahora hay una que se llama Missing (acá le pusieron Desconectada). Calo y Flor la vieron. También hablan sobre la copa que "perdimos", la ¿última? película de Tarantino, posible plagio al hijo de Barry Levinson y más cosas que ya ni se acuerdan. Para cerrar: El Club de los Divorciados con Steven Spielberg y AVANT PREMIERE DE OSO INTOXICADO. De nada.
 
 ## [285] - 2023.03.10 - Todos somos la segunda marca de alguien (78m) [spotify](https://open.spotify.com/episode/3WmzJOmyRzZBrfbjDENDQ7)
+
+* The Whale
 
 Lo esperabas, lo pedías, acá está: el capítulo de La ballena (The Whale, 2022). Calu y Flor se meten con el regreso de Brendan Fraser, la carrera de Darren Aronofsky, pizza con mayonesa sí o no y todas esas cosas. Bueno, claro, además parece que se vienen los Oscar así que se habla un poco del tema, sobre todo porque estamos esperando ESE resultado. En coyuntura tenemos un poco de Nic Cage, otro poco de Michelle Yeoh y su campaña dudosa, Linklater y un rodaje de 20 años, etc. Sale ese play, perfecto, sí, bárbaro.
 
 ## [284] - 2023.03.03 - No me sale lo femenino (98m) [spotify](https://open.spotify.com/episode/7h0N28XbbhJ2NkIU62ONNW)
 
+* Women Talking
+
+* She Said
+
 Finalmente se les dio y Flor y Calu pueden hablar de las dos películas que querían emparejar desde hace rato: Ella dijo (She Said, 2022) de Maria Schrader y Ellas hablan (Women Talking, 2022) de Sarah Polley.  Además tenés como una hora de coyuntura en la que se comentan novedades de la entrega de los Oscar, el jetlag de Chris Pine, Donnie Yen contra los estereotipos asiáticos y puede que alguna cosa como Anama Ferreyra contra Poroto Cubero.  This is agarrar la pala.
 
 ## [283] - 2023.02.17 - Sarah Connor: mamá luchona (91m) [spotify](https://open.spotify.com/episode/2PUcIhb1Gd479AbMmO9bCM)
+
+* Infinity Pool (2023)
 
 Llegó una de esas películas que Calu y Flor estaban esperando con muchas ganas. En este capítulo hablan de Infinity Pool (2023), dirigida por Brandon Cronenberg, uno de los nepobabies favoritos de la casa. La coyuntura incluye una comparación de alturas entre Ricardo Darín y Tom Cruise, la prueba de Marc Maron para Avatar 2, Kristen Stewart -presidenta del jurado de la Berlinale- que no puede mencionar ni una película europea que le guste, sigue el mambo de los Oscar y ya que estamos despedimos el acento de Elvis de Austin Butler. Para cerrar Flor abrió su Club de los Divorciados con la historia de James Cameron, el hombre que jamás estuvo soltero. A esto le das play. No, de nada. ❤️
 
 ## [282] - 2023.02.10 - Los ángeles de la droga (86m) [spotify](https://open.spotify.com/episode/5qVGUbXCnhQA1m0jLR9Q8t)
 
+* I Wanna Dance with Somebody (2022)
+
 Dos fijas: el que puso dólares recibirá dólares y los viernes sale Hoy Trasnoche. Por eso acá tenés a Calu, Flor y Oti hablando sobre cin… bueno, tampoco vamos a mentirte. La cosa arranca con la muerte de Rodrigo, Walter Olmos, cumbia villera vs cuarteto, ruleta rusa y true crime patagónico. ¡Ah, pero después! Coyuntura de la que te gusta: habló Armie Hammer, cines con precio diferenciado por ubicación, ¿muere o no muere HBO Max? y más. La película, sí, porque hay una pelícua, no te la podés creer, es la biopic Quiero bailar con alguien (Whitney Houston: I Wanna Dance with Somebody, 2022) de Kasi Lemmons. Se vuelve a hablar de Bohemian Rhapsody, claro. Dijo Flor que acá arrancaba la saga El Club de los Divorciados pero andá a saber.
 
 ## [281] - 2023.02.03 - ¿Esto se puede coger? (83m) [spotify](https://open.spotify.com/episode/2KVgbJ6bZbO7JRT7DgaKTA)
+
+* Sick (2022)
 
 Y es de esta manera que estamos otra vez en viernes y como todos los viernes sin excepción hay un nuevo episodio de Hoy Trasnoche. En esta ocasión, Flor y Calu (Oti estaba con calores y el chico de redes también) se meten en las coyunturas más variadas que empiezan con el el VHS que dicen que separó a los Redondos, que nos lleva a hablar de cómo funciona el cerebro de Flor, que nos lleva a un intento de paralizar candidatas al Oscar con participantes de Gran Hermano, que nos lleva a volver a hablar porque sigue la cantinela con la de Mandy nominada a mejor actriz, al anuncio de incluso otra película de Roman Polanski y Venecia y Cannes peleándose por no agarrarla, al reality show de Stallone con las hijas y hasta la biopic de Michael Jackson. Y vos dirás "Bueno, muy completo" pero no: aún hay más, porque vieron una película. La elegida es Sick (2022) de John Hyams. Y parecería que ahí está, pero Flor medio que metió un capricho con una reseña que nadie le pidió de Espíritus de la isla (The Banshees of Inisherin, 2022) de Martin McDonagh. Y ahí sí. Listo. No pidas más. O poner guita.
 
 ## [280] - 2023.01.27 - No me siento un poco bien (89m) [spotify](https://open.spotify.com/episode/6WaXf3nQZ9eTjdrQJ4QpEx)
 
+* There’s Something Wrong with the Children (2023)
+
+* M3GAN (2022)
+
 Sí, estás en lo cierto: es viernes. Y como todos los viernes (el pasado, sin ir mas lejos) hay un nuevo episodio de Hoy Trasnoche. Esta semana (como todas las semanas, por si hiciera falta repetirlo) Flor y Calu (sin Oti, porque Flor al final la puso en un sitio de subastas a ver si le saca una guita ni el chico de redes, que ya subastó todo hace tiempo) se meten en las coyunturas más variadas, como: todo lo que no querías saber sobre la situación psiquiátrica de Flor, las nominadas al Oscar porque ¡estamos nominados todos!, la biopic de Madonna que al final parece que no, Julian Sands que no lo encuentra nadie, los boludos de los Razzies contra la nena de Firestarter, Jared Leto haciendo ¡Tron 3! Y alguna que otra delicatessen más. Y como si todo eso fuera poco, vieron dos películas. Las elegida de esta semana son There's Something Wrong with the Children (2023) de Roxanne Benjamin y M3GAN (2022) de Gerard Johnstone. Y la verdad que nada más. O sí. Andá a saber. Vas a tener que escuchar.
 
 ## [279] - 2023.01.13 - Los papitos separados (67m) [spotify](https://open.spotify.com/episode/4iQ3dSpasgP9vWkktKNrvG)
 
+* Mad Heidi (2022)
+
 Hola, es viernes, es enero y hay un nuevo episodio de Hoy Trasnoche. Como siempre. Eh. Como siempre. En esta edición Flor y Calu (a Oti Flor la dejó en un auto en estacionamiento de un super al sol y el chico de redes parece que volvió de Panamá con ganas de casarse) se meten en las coyunturas más variadas, como por ejemplo: ¡GANAMOS un Golden Globe!, Tom Hanks defendiendo a los nepobabies, tema que nos llevó a hablar de El hotel de los famosos no sabemos muy bien por qué, Edward Norton descendiente de Pocahontas y alguna que otra cosa más. Un lujo para esta altura del año, imaginate si a eso le agregamos que vieron una película europea: la elegida es la suiza Mad Heidi (2022) de Johannes Hartmann y Sandro Klopfstein. Y qué suerte que leíste hasta acá, porque hay una entrega urgentísima de Los caprichos de Flor con todo el puterío de los papis de Spielberg. La verdad que si lo tuviéramos que tasar, esto tiene un valor incuantificable. Y vos te lo estás llevando de arriba. Qué decirte.
 
 ## [278] - 2023.01.06 - Todo lo que es el tema de la salud mental (95m) [spotify](https://open.spotify.com/episode/1g75qYozgb4drhnU7AF6Ld)
+
+* Glass Onion
+
+* Bones and All
+
+* The Fabelmans (2022)
 
 Sí, empezó el año. Y también es viernes, el día que hay nuevo episodio de Hoy Trasnoche. ¿Y sabés qué? Hay, por eso estás leyendo esto. Como todos los viernes sin excepción, claro. No sabemos por qué tantas dudas. Y en esta ocasión Flor y Calu (Oti la dejó Flor en el auto al sol y el chico de redes se fue a cumplir su sueño de conocer al ex de Iliana calibró a Panamá) se meten en coyunturas de lo más variadas que incluyen: una lista de cien películas que Flor primero cree que es Variety, después de Sight & Sound y finalmente resulta ser de Variety, lo que los hace terminar hablando de medios especializados y de cómo todos son del mismo dueño, Dwayne "The Rock" Johnson como el culpable de todo, Ezra Miller que parece que al final no era tan grave porque hay que recuperar la guita, una nepobaby que se hace cargo y el escándalo de Romeo y Julieta... de Franco Zeffirelli. Y vos dirás: "Bueno, listo, no quiero más" y vas a tener que querer, porque además vieron no una, no dos sino ¡tres! películas. Las elegidas son Glass Onion: Un misterio de Knives Out (Glass Onion: A Knives Out Mystery, 2022) de Rian Johnson, Hasta los huesos (Bones and All, 2022) de Luca Guadagnino y Los Fableman (The Fablemans, 2022) de Steven Spielberg. Y vos de vacaciones. Y si no salía esto, seguro que las parabas para reclamar que agarremos la pala. Andá, no te queremos ni ver.
 
@@ -156,6 +236,10 @@ Aunque realmente no puedas acreditar esto que estás leyendo, es el último vier
 
 ## [276] - 2022.12.23 - Marcado una vez más la agenda cultural mundial (70m) [spotify](https://open.spotify.com/episode/3k51TRSPcCCK2zNhharq6W)
 
+* Violent Night
+
+* Christmas Bloody Christmas
+
 Sí, quizás vengas medio que no sabés, pero en el fondo sí. Es viernes. Y como todos los viernes de la historia, hay un nuevo episodio de Hoy Trasnoche. En esta ocasión, Flor y Calu (solos, porque Oti tenía que quedarse llorando en casa y el chico de redes no nos dijo, pero también) se meten en las coyunturas más variadas, como la discusión sobre nepobabies disparada por la tapa de la New York Magazine, James Cameron meando encima de casi cualquier cosa y varios temas de cadente actualidad. Y vos dirás "bueno, ya con eso estoy" y no: porque encima vieron dos películas con espíritu navideño. Las elegidas de esta semana con Violent Night (2022) de Tommy Wirkola y Christmas Bloody Christmas (2022) de Joe Begos. Sí, es realmente inaudito que no se te esté debitando la caja de ahorro en pesos en este momento.
 
 ## [275] - 2022.12.16 - Nuestro amigo hizo una película (85m) [spotify](https://open.spotify.com/episode/03ccQP7LagGffGePKS5c55)
@@ -164,33 +248,59 @@ Hola, no te mintieron. Es viernes. Y como todos los viernes desde que el mundo e
 
 ## [274] - 2022.12.09 - Quiere Ouija (77m) [spotify](https://open.spotify.com/episode/3h0UgJuVCaLDPf8uCNCBnn)
 
+* The Viewing
+
 Sí, es viernes y nidea con qué andarás distraídx, pero como cada viernes desde que el mundo es mundo, hay un nuevo episodio de Hoy Trasnoche. En esta ocasión, Flor y Calu (sin Oti, que tenía que quedarse llorando sola en casa, ni el chico de redes que también medio que lo mismo) se meten en coyuntura muy variada que incluye: nuevos hitos de Saslav a cargo de ese accidente de trenes en el que se ha convertido HBOMax / Warner / Discovery o andá a saber cómo le dirán, Patty Jenkins que sigue sin devolver la guita, Mike Flanagan que se va de Netflix a Amazon, Charlize Theron y Jennifer Lawrence que sufren un montón y no devuelven ni un peso y creeríamos que nada más. Pero eso no es todo, porque además vieron una ¿película?: la elegida es The Viewing (2022) de Panos Cosmatos. ¿Es esto un cambio de rumbo en este podcast? ¿Alguna vez tuvo rumbo este podcast? Y quedate atentx al final, porque hay una información realmente importante. En serio. No, no estamos jodiendo. De verdad.
 
 ## [273] - 2022.11.18 - Spielberg coge y llora (74m) [spotify](https://open.spotify.com/episode/3CAf1IffWvmy80uzrMENrQ)
+
+* Piggy
+
+* Incredible But True
 
 Hola, cómo estás. Si venís bien de ubicación espacio-temporal, sabrás que es viernes. Y como todos los viernes sin excepción hay un nuevo episodio de Hoy Trasnoche. En esta ocasión Flor, Calu y Oti (el chico de redes está preso por bajarse temas de Mariah Carey de Napster) se meten con la coyunturas más variadas o no tanto como: varias noticias que tienen a Spielberg de protagonista, Alec Baldwin que parece que al final también está casi tan dolido como la directora de fotografía que mató, la casa de El loco de la motosierra en venta y varias cosas que ahora, la verdad, no tenemos tan presentes. Y eso no es todo, porque además vieron dos películas, y europeas: las elegidas son la española Cerdita (2022) de Carlota Pereda y la francesa Incroyable mais vrai (2022) de Quentin Dupieux. ¿Cómo habrá reaccionado Flor ante una película española que "no se entiende lo que dicen" y una francesa que, bueno, tampoco? ¿Y cómo Calu? Cuántos misterios. Y el misterio sigue, porque en una de esas el capítulo cierra con un capricho, pero andá a saber. Vas a tener que escuchar. Gratis, por cierto.
 
 ## [272] - 2022.11.04 - La larga noche de los Benvenuto (73m) [spotify](https://open.spotify.com/episode/4HtUbpjOUnvpXv38coJlUG)
 
+* Terrifier 2
+
 Hola, sí: no te mintieron, es viernes. Y como cada viernes desde que la humanidad más o menos sigue el calendario, hay un nuevo episodio de Hoy Trasnoche. Esta semana Flor, Calu, Oti y el chico de redes que llega en un momento se meten con coyunturas variadas pero concretas: tres "devolvé la guita". Uno de Tim Burton, otro de Henry Sellick, otro de Jennifer Lawrence y un último de Guillermo Francella. Y eso no es todo, porque además se animaron a ver una película. La ¿elegida? de esta semana es Terrifier 2 (2022) de Damien Leone. ¿Les gustó? ¿No les gustó? Andá a escuchar, querés.
 
 ## [271] - 2022.10.28 - El sostén emocional de una pareja en crisis (90m) [spotify](https://open.spotify.com/episode/3FsXXUReIOV1e7C0syhNhg)
+
+* Pearl
+
+* Barbarian (2022)
+
+* Halloween Ends
+
+* Hellraiser
 
 Si, tu calendario no se equivocó. Es viernes. Y como todos los viernes sin excepción (sin ir más lejos, el pasado), hay nuevo episodio de Hoy Trasnoche.  En esta ocasión Flor, Calu y Oti (el chico de redes tenía un bautizo) se meten con coyunturas variadas, a saber: Kanye West cancelado ahora sí finalmente, el que hacía de Chandler en Friends contra Keanu Reeves, Tobin Bell que parece que vuelve a la saga de El juego del miedo ya no se entiende muy cómo y creemos que nada más.  Y eso no es todo porque no vieron una, ni dos, ni tres sino ¡cuatro! películas. Las elegidas son Hellraiser (2022) de David Bruckner, Halloween: la noche final (Halloween Ends, 2022) de David Gordon Green, Bárbaro (Barbarian, 2022) de Zach Cregger y Pearl (2022) de Ti West. ¿Por qué tantas? ¿Por qué en ese orden? Vas a tener que escuchar.  Y vas a tener que seguir escuchando, porque este capítulo ha sido bendecido por una edición extra large de Los caprichos de Flor.  Si, es obvio que te lo tendrían que estar cobrando, pero algunos ya nacen así: con el corazón filantrópico.
 
 ## [270] - 2022.10.14 - Viste cómo son las minas (98m) [spotify](https://open.spotify.com/episode/5huwihHMNITaL4gaScsUjr)
 
+* 30 Nights with My Ex
+
 Hoy Trasnoche, fiel a su tradición de seleccionar las más excelsas porongas para su visionado multimedia, trae hoy para vos el debut como auteur de Adrián Suar. La pediste, la tenés. Ahora no le vas sacar el culo a esta jeringa.
 
 ## [269] - 2022.10.07 - ¿Cómo te metés un podcast en el culo? (89m) [spotify](https://open.spotify.com/episode/6o7OSbRP5FndoMYYwQiGtZ)
+
+* Bodies Bodies Bodies
+
+* Speak No Evil
 
 Será feriado, pero también es viernes. Y como todos los viernes, y haciendo de agarrar la pala un ejemplo para todos, hay un nuevo episodio de Hoy Trasnoche. En el episodio de hoy Flor, Calu y Oti (el chico de redes tenía una LAN party) se meten en las coyunturas más variadas, como: ¿la absolución por plata? de Alec Baldwin, Elizabeth Olsen que no saben muy bien si está en contra de Marvel o si es fake news, ¿otro fueguino más famoso que Flor?, las actrices cortándose las puntas por Irán, el desempeño en salas "del circuito alternativo" de Argentina 1985 (2022) y hasta una aparición estelar de Fer Mugica explicándoles cuántos pares son tres botas con todo lo que es el tema de las comedias románticas. Y no contentos con eso encima vieron ¡dos películas! Las elegidas de esta semana son: la norteamericana Bodies Bodies Bodies (2022) de Halina Reijn y la danesa / holandesa Speak No Evil de Christian Tafdrup. ¿Qué les habrán parecido? Vas a tener que escuchar. Y vas a tener que seguir escuchando, porque Flor no metió Nepobabies ni ningún capricho. O sí, porque se puso a despotricar contra Blonde (2022) de Andrew Dominik y le tuvimos que dar algo para que se calme. Sí, sabemos lo que estás pensando: no puedo creer que sea gratis.
 
 ## [268] - 2022.09.30 - Una coyuntura de mierda (72m) [spotify](https://open.spotify.com/episode/0fN2eVQbN1rM18mn8IegCj)
 
+* Argentina, 1985
+
 Hola, estás en lo cierto: es viernes. Y como ABSOLUTAMENTE TODOS los viernes hay un nuevo episodio de Hoy Trasnoche, el único podcast del mundo. Esta semana, en un denodado esfuerzo de producción, Calu y Flor (Oti estaba indispuesta y el chico de redes nidea, pero ni pintó) traen un invitado de lujo para soportar a Flor queriendo sacar coyunturas de la galera porque no las había preparado y para hablar del film del que es productor: Axel Kuschevazky y Argentina 1985 (2022) de Santiago Mitre. ¿Cuál es el productor, cuál la película? Vos dirás "ah, está escrito como el orto", pero en realidad es un enigma que se resuelve escuchándolo. No sabemos qué más querés.
 
 ## [267] - 2022.09.23 - Viciosa como la madre (77m) [spotify](https://open.spotify.com/episode/3WAZj3a3JD2vqjEPNHLkDR)
+
+* Orphan: First Kill
 
 Sí, tu instinto no falló: es viernes. Y como todos los viernes sin excepción hay un nuevo Hoy Trasnoche. En lo que se podría considerar un episodio con todo el elenco (Flor, Calu, el perro, el chico de redes), se meten en coyunturas variadas como: hacer un unboxing, el drama de Ezra Miller de esta semana, una cosa de Ana de Armas y la tumba de Marilyn, Mel Gibson enojado con Warner, Scorsese recomendando cincuenta películas y un estudio de la UCLA sobre lo que quiere ver el público joven. Y vos dirás "Bueno, listo, con eso me conformo", pero no: porque además vieron una película. La elegida de la semana es La huérfana: el origen (Orphan: First Kill, 2022) de William Brent Bell. Y vos dirás "La verdad qué maravilla todo lo que me dan y yo sin poner un peso" y la verdad que en esa te damos la derecha y te doblamos la apuesta como una oferta de chocolates con la cadena de frio polémica del tren: porque Flor intenta sobre el final una teoría medio falopa de Nepobabies que casi, casi entra como una nueva de la saga. Ahora, sí nada más. Agarrá la pala vos la próxima.
 
@@ -200,25 +310,39 @@ Sí, no andabas con la cabeza en cualquier lado: es viernes. Y como todos los vi
 
 ## [265] - 2022.09.09 - ¿Para esto mi abuela se puso en bolas? (70m) [spotify](https://open.spotify.com/episode/7uk5d0dCmNKlOC1HHALAuh)
 
+* Fall
+
+* Vengeance
+
 Aunque no lo creas, es viernes. El día en el que llueva o truene sale SIEMPRE Hoy Trasnoche. Esta semana, Flor, Calu y el chico de redes —Oti tenía un evento— se meten con coyunturas de todo tipo como: la guerra de duraciones de aplausos en en Festival de Venecia, el drama incesante de la película de Olivia Wilde, la mama de Shia LaBeouf que parece que Lola Becerra va a preguntar "¿Qué es QEPD?" en redes sociales y un poco (no todo) sobre el docu true crime de la tía de Armie Hammer. Y como si todo esto fuera poco (y pago) vieron dos películas. Las elegidas son Vértigo (Fall, 2022) de Scott Mann —esssa, te comiste el amague, pensaste que era la de Hitchcock— y Vengeance (2002) de B.J. Novak. ¿Les gustaron mucho? ¿Más o menos? ¿Una sí y la otra no? ¿Será al revés? ¿Será al derecho? Vas a tener que escuchar, igual que para saber si hay Nepobabies o no. Dale, no te hagas que no tenías mejor plan que este.
 
 ## [264] - 2022.09.02 - Entré por el glory hole y me quedé por lo otro (62m) [spotify](https://open.spotify.com/episode/2jntI6akM5ZCq6n9z3VbzT)
+
+* Glorious
 
 Sí, ese corazoncito loco que tenés no te había fallado: es viernes. Y como todos los viernes sin excepción desde que se puso el calendario romano, hay un nuevo episodio de Hoy Trasnoche. Esta semana Flor, Calu y Oti —que volvió con la firme intención de no dejar un cable sin masticar— se meten en coyunturas variadas de todo tipo, como los extraños nuevos tatuajes de Armie Hammer, Ezra Miller que parece que no lo sacaron de una película pero la directora salió a decir no sé qué, Adam Driver y el aplauso corto, Shia LaBeouf arrepentido de no sabemos bien qué, el quilombo incesante de la nueva película de Olivia Wilde, que a esta altura tendría que estrenarse en el verano en Carlos Paz y (tan sólo) un teaser de la vuelta del ABDL. Y como si todo esto fuera poco, vieron una película. La elegida es Glorious (2022) de Rebekah McKendry, que no te queremos spoilear, pero es tan Hoy Trasnoche que duele. ¿Hay algo más? Claro que sí. FLOR TRAJO UN AUDIO. Pero para eso te vas a tener que fumar todo lo otro.
 
 ## [263] - 2022.08.26 - Haciendo caca en una planta (71m) [spotify](https://open.spotify.com/episode/46BCSIVrV9FXdWgFSUCgbh)
 
+* Nope
+
 Sí, claro que es viernes. Sí, claro que como TODOS los viernes hay un nuevo episodio de Hoy Trasnoche, el único podcast del mundo. Esta semana, Flor y Calu —Oti estaba en una, no pudo venir— se meten en dos coyunturas que le toman mucho tiempo: por un lado el minuto a minuto del dramah Discovery, Warner, HBOMax y todo eso y por el otro Shia LaBeouf ¡contra Olivia Wilde! y después Shia LaBeouf ¡haciendo quilombo él solo! Pero a sabiendas de que vos seguís pensando que este es un podcast de cine, hicieron la milla extra y vieron una película, que resultó ser ¡Nop! (Nope, 2022) de Jordan Peele y hablaron largo y tendido por si justo sos de lxs que no la entendieron .¿Habrá Nepobabies? Bueno, te vas a tener que quedar a escuchar.
 
 ## [262] - 2022.08.19 - El "aber kojan" del proceso creativo (71m) [spotify](https://open.spotify.com/episode/66FGeYZrjDWPPTxNlEz25P)
+
+* Prey
 
 Hola, sí, ya lo sabés. Es viernes, el día en el que siempre y sin ningún tipo de descanso sale Hoy Trasnoche. Esta semana, Flor, Calu y Oti se meten en coyunturas de lo más variadas, que incluyen algo de Ezra Miller, Jonah Hill haciéndose el que no quiere no sé qué cosa, el la bajada estrepitosa del clout de Will Smith después del temita de los Oscar, la Academia pidiéndole perdón quizás un poco tarde a la activista Sacheen Littlefeather, el boom de los guardaespaldas en Hollywood, y no sabemos bien qué más de HBOMax. Como si todo esto fuera poco, vieron Depredador: La presa (Prey, 2022) de Dan Trachtenberg y la verdad que hubo moncloa. Y esperá que hay más, porque este es el episodio donde empieza Nepobabies... ¿En cuál termina? Si te lo decimos, te tenemos que matar.
 
 ## [261] - 2022.08.12 - Cagarse encima de grande (66m) [spotify](https://open.spotify.com/episode/6SdhtC0c2MTcJPeKlAPPdE)
 
+* They/Them
+
 Sí, es viernes. El día en el que invariablemente y sin pausa alguna sale Hoy Trasnoche. ¿Te parece que estamos faltando a la verdad? ¿Qué hubo el viernes pasado? ¿Un episodio? ¿Y esto qué es? ¿Ves? En esta ocasión Flor, Calu y Oti —que se hizo señorita— tocan coyunturas todo tipo, que incluyen qué Ezra Miller sos según tu signo del zodíaco, algo de la tía de Armie Hammer y todo el entuerto Discovery, HBOMax y HBOMenox. Y como si todo eso fuera poco, vieron una película y la verdad que lo lamentaron: la —mal— elegida es They/Them (2022) de John Logan. Pero no dejes que esto te desanime: ellos ya se desanimaron para que vos no tengas que pasar por lo mismo.
 
 ## [260] - 2022.08.05 - Olaf es falo al revés (102m) [spotify](https://open.spotify.com/episode/3YxxCcx7AhSdaygHWSvVQ9)
+
+* Olaf
 
 No nos digas que necesitás info de este episodio.
 
@@ -236,33 +360,53 @@ Sí, es viernes y es feriado. ¿Y qué te creías? ¿Que no iba a haber Hoy Tras
 
 ## [256] - 2022.06.10 - Un par de polvos tristes (78m) [spotify](https://open.spotify.com/episode/0IERfPhVM0LNnDxEvqjyAs)
 
+* The Unbearable Weight of Massive Talent (2022)
+
 ¡Hola! Este es un mensaje automático para avisarte que es viernes y que hay un nuevo episodio de Hoy Trasnoche, por favor no lo contestes. En esta ocasión, Flor, Calu y Oti se meten en las más variadas coyunturas como: pucha, al final Joker era saga; toda la verdad sobre los pezones de la Batman de Schumacher: el director de ¡dos Jurassic Park! preocupado por el cine independiente: un test de Bechdel que capaz no muy a lugar: la comedia de enredos entre Netflix y los exhibidores, ahora que le bajaron los suscriptores y alguna que otra cosa más. Y eso no es todo: porque vieron y no estuvieron de acuerdo con lo que pensaron de El peso del talento (The Unbearable Weight of Massive Talent, 2022) de Tom Gormican, pero no te vamos a contar si hubo goma o no. Y si llegaste leyendo hasta acá, mirá la sorpresa que te tenemos: vuelven los Kennedys. Si, un montón. Sí, sigue siendo gratis.
 
 ## [255] - 2022.06.03 - El camino a la felicidad no incluye asesinar (64m) [spotify](https://open.spotify.com/episode/0U0Rj6gGFU4KsNV4WV7lCW)
+
+* Dark Glasses (2022)
 
 Sí, aunque no lo creas es viernes: el día que Jesusito decidió que sea de Hoy Trasnoche. Y no nos vengas a decir que el viernes pasado esto y el anterior aquello: hoy hay capítulo. Y Flor, recién llegada de unas ¿merecidas? vacaciones y Calu que se quedó a sacar el país adelante la-bu-ran-do se meten con coyunturas de todo tipo, como: los records de aplausos en Cannes, la muerte de Ray Liotta y cómo fue homenajeado por influencers, las resultantes de juicio de Amber Heard a Johnny Depp ¿o era al revés? y alguna que otra cosa más. Eso no es todo, porque además vieron Occhiali Neri (2022), el giallo a contrapelo del querido Dario Argento... ¿terminaron hablando de cine italiano? Andá a saber. Y esperá porque esto es como las ofertas del tren: quizás, en una de esas, no te queremos enamorar, asoma la cabeza por detrás de la ligustrina el ¿regreso? de una saga de caprichos. Más, la verdad, te lo tendríamos que cobrar.
 
 ## [254] - 2022.05.13 - Acuosa profusa (79m) [spotify](https://open.spotify.com/episode/5DjNCEalNdkNHpKP1AXboI)
 
+* The K.E.O.P/S System (2022)
+
 Sí, ya es viernes. El día que sale Hoy Trasnoche. Siempre. Y como sale siempre, este viernes no es la excepción. Y Flor y Calu se meten en coyunturas tan variadas como las cartas de Mozart con caca y amor entre primos, no sabemos qué quilombo con Maverick, la nueva Top Gun, el ¿regreso? de Kevin Spacey y alguna que otra cosa más. Y eso no es todo, porque además vieron (y hablaron) de una película con su director: desde su casa, Nicolás Goldbart, hisopado positivo de COVID la mañana de la avant premiere de El sistema K.E.OP/S (2022) no se guarda nada. ¿Querían más? ¡Por favor!
 
 ## [253] - 2022.05.06 - Y en un momento todo se convierte en una letra de Walter Olmos (66m) [spotify](https://open.spotify.com/episode/2S56Xl6rVnELlDknGr4RVW)
+
+* To Kill the Beast (2021)
 
 Hola, sí, qué tal. Es viernes. Y si es viernes, medio que casi casi casi siempre hay Hoy Trasnoche. Esta semana, Calu y Flor se meten en coyunturas de todo tipo, como la vez que Flor conoció a ELO Podcast en persona, una noticia de incesto que la final no daba pero bueno, alguito de Robert De Niro en Argentina, una de Elizabeth Moss y no sabemos qué de Laffie, Cate Blanchette y no sabemos qué de los directores medio pajeros con las actrices y los yanquis llegando finalmente al "que devuelvan la guita" Y eso no es todo, porque además vieron una película y les gustó mucho. La elegida de esta semana es Matar a la bestia (2021) de Agustina San Martín, que podés aprovechar y ver en sala ahora mismo. Si llegaste hasta acá hay premio: ¿vuelven los Kennedys? Bueno, escuchalo para saber. Y si llegaste hasta acá hay doble premio: te invitamos a la premiere de El sistema K.E.OP/S (2002) de Nicolás Goldbart la semana que viene. ¿Cómo? Bueno, escuchalo para saber también.
 
 ## [252] - 2022.04.29 - Hoy TrasWOKEche (71m) [spotify](https://open.spotify.com/episode/6gGWL2pTNGIiv11rbeD391)
 
+* Ambulance (2022)
+
+* The Northman (2022)
+
 Sí, es viernes. Y no es cualquier viernes, sino uno dónde sí sale Hoy Trasnoche. En episodio de hoy, Flor y Calu se meten con coyunturas variadas, como son la venta del departamento de Francella en Granizo, algo de la Cinemacon con Olivia Wilde que nidea, el conflicto de Arabia Saudita con el contenido LGBTQI+ ¡de Disney!, el juicio de Johnny Depp, Edu Feinmann acusando a Milei de santiagueño y alguna que otra cosa más que no recordamos... ¡Ah, sí! Además vieron dos películas (bueno, Calu una sola): Ambulance (2022) de Michael Bay y El hombre del norte (2002) de ¿David? ¿Robert? Eggers. No hay Kennedys: ya viendo lo que dura deberías darte cuenta que hubiera sido un exceso.
 
 ## [251] - 2022.04.15 - Nosotros matamos a tu Mesías (67m) [spotify](https://open.spotify.com/episode/2XYb9dsDOTLowMXnHkYst0)
+
+* X (2022)
 
 Hoy es viernes santo y por más que muera Jesusito, hay Hoy Trasnoche. En esta ocasión, Flor y Calu se meten con coyuntura variada que incluye: la formación religiosa de Flor vía Charlton Heston, el Papa y la ¿coprofilia? ¿coprofagia?, Sean Penn que extraña ucrania, Verhoeven que quiere que se coja más en las películas, Nicolas Cage demostrando una vez más que es el mejor humano vivo, Mark Wahlberg diciendo no sabemos qué del osígeno de nuevo y el drama del camino del INCAA. Y eso no es todo, porque vieron una película que AMARON: X (2022), la nueva de Ti West. Ahre que te spoileamos que no se pelean. O no. O si.
 
 ## [250] - 2022.04.08 - El día después de poronga (119m) [spotify](https://open.spotify.com/episode/6ig7lNaKK13LJlrGBbE4No)
 
+* All Hail (2022)
+
 ESTA PUÑALADA DE CARNE NO TE LA ESPERABAS, EH.
 
 ## [249] - 2022.04.08 - Traigan tierra, que palas sobran (65m) [spotify](https://open.spotify.com/episode/4wSWsJyMdg0h3LyZhe7zkz)
+
+* Studio 666 (2022)
+
+* Jackass Forever (2022)
 
 Sí, es viernes. Y (casi casi) todos los viernes sale Hoy Trasnoche. Esta semana Flor y Calu transitaron los sinuosos caminos de la coyuntura variada, que incluye la piña de Will Smith, la secta y el poder de ¿mufa? de Jared Leto y varios escenarios hipotéticos que incluyen a Flor, estrellas de Hollywood y heces. Y si no te morías de ganas de escuchar todo eso, esperá que hay más, porque vieron dos películas: Studio 666 (2022) de BJ McDonnell y Jackass Forever (2022) de Jeff Tremaine. ¿Cuál odiaron? ¿Cuál amaron? ¿Cómo saberlo? Y si pensabas que eso era todo, quedate mirando el feed un rato que en una de esas pasa algo.
 
@@ -272,33 +416,57 @@ Hola, ya llegó el viernes, ese día mágico en el que hoy, justo hoy, sí hay H
 
 ## [247] - 2022.03.04 - Buscando en Wikipedia a la tarde para repetirlo a la noche (60m) [spotify](https://open.spotify.com/episode/0f14QM45hjsqlLjnuSI04h)
 
+* Hellbender (2021)
+
 Sí, que no te engañen: es viernes. Y si es viernes, hay Hoy Trasnoche. En este capítulo en el que Calu y Flor hicieron todo lo posible por arañar la hora sin suerte hay coyuntura variada, que incluye: una larga diatriba sobre la manía de cancelar a todo lo que camine, el quilombo de los Oscar, no sabemos qué de Batman y varias cosas más. En notas más agradables, vieron Hellbender (2021) de John Adams, Zelda Adams y Toby Poser y les pareció una de las mejores películas del año. Sí, a principios de marzo. Obvio que no hay Kennedys, ni Marilyn ni nada. Eso lo hablan con Flor. Nosotros solo escribimos el copy.
 
 ## [246] - 2022.02.25 - Hace su entrada la bandera de Santiago del Estero (71m) [spotify](https://open.spotify.com/episode/05gaQffWqGtbrPVXc5BiCB)
+
+* Texas Chainsaw Massacre (2022)
+
+* Scream (2022)
 
 ¿Podés creer que es viernes? ¿Y que hay un nuevo episodio de Hoy Trasnoche? Esta semana, Flor y Calu traen todo tipo de coyunturas, que incluyen: la semana de Flor en Okcupid, felices aventuras adolescentes en Tierra del Fuego, Sean Penn con una cámara apuntándole en Ucrania, Coppola ahora quejándose de no nos acordamos bien qué, los Oscars y Mark Wahlberg pitcheando corte "el osígeno." Y como si todo eso fuera poco vieron ¡dos! películas: The Texas Chainsaw Massacre (2022) de David Blue Garcia y Scream (2022) de Matt Bettinelli-Olpin y Tyler Gillett y opinaron bastante lo mismo de una y medio que distinto de otra, pero medio que al final no tanto. O sí. O capaz lo vas a tener que escuchar. Este capítulo no contiene trigger warnings ni Kennedys. Más no podían hacer, la verdad.
 
 ## [245] - 2022.02.18 - Le comíamos el Nestún aka Prepucio compungido (62m) [spotify](https://open.spotify.com/episode/22s1zUL5BR05kSxtUkOk3i)
 
+* Kimi (2022)
+
 No es ninguna novedad que hoy es viernes. Tampoco que es el día que sale Hoy Trasnoche. Y qué episodio que tenemos para ustedes, con coyuntura de todo tipo que incluye, entre otras cosas, los Oscar de nuevo que se pusieron permisivos con los que no se vacunaron porque son famosos, Coppola que se queja de no sabemos qué, Spencer y la manía de Larraín con las biopics, un breve análisis del sube y baja de la carrera de Soderbergh y una pregunta realmente importante: ¿la cocaína es vegana? No contentos con todo esto, Flor y Calu vieron una filme. Se trata de Kimi (2022) de Steven Soderbergh... ¿de qué lado de sube y baja estará la película? ¿y Flor? ¿y Calu? Muchas preguntas y todas tienen la misma respuesta: averigualo escuchando, que lo único que falta es que te lo digamos acá.
 
 ## [244] - 2022.02.11 - Soy mala con la droga (84m) [spotify](https://open.spotify.com/episode/4QzfobPMr5UKAhXeyExWoq)
+
+* House of Gucci (2021)
+
+* Parallel Mothers (2021)
+
+* Red Rocket (2021)
 
 Si, bueno, es viernes. Y viernes es sinónimo de Hoy Trasnoche. Y si bien la semana pasada no hubo —no vamos a negar ni confirmar si fue por el incidente de la cocaína adulterada— esta semana se viene con un capitulazo. Porque Flor y Calu hablan de coyuntura variada, que incluye las aventuras de Flor en una app de citas, los nominados a los Oscar, las polémicas declaraciones sobre el osígeno de Javier Bardem, una nota incomprensible sobre superhéroes publicada en un diario centenario y alguna que otra cosa más. Pero no solo eso, porque además vieron ¡tres! películas que o se estrenaron, o se estrenan o no se van a estrenar jamás: La casa Gucci (2021) de Ridley Scott, Madres paralelas (2021) de Pedro Almodóvar y Red Rocket (2021) de Sean Baker. No hay ni Kennedys, ni Marylin, ni mierda. Tres películas vimos: qué más les vas a pedir.
 
 ## [243] - 2022.01.28 - This is agarrar la pala (78m) [spotify](https://open.spotify.com/episode/0xfjl1P12p0DbRtxE8jrf9)
 
+* The Scary of Sixty-First (2021)
+
+* Pleasure (2021)
+
 Hola, sí, es viernes. Y si es viernes medio que (casi casi casi) siempre hay Hoy Trasnoche. Esta semana Flor y Calu no vieron una sino ¡dos! películas: The Scary of Sixty-First de Dasha Nekrasova y Pleasure de Ninja Thyberg, propusieron un doble programa por una serie de conexiones y estuvieron (medio que bastante) de acuerdo. Claro que también hay coyuntura variada, que incluye una noticia con enanos, otra con acciones cayendo estrepitosamente y hasta un proyecto de ley de Santiago del Estero. ¿Hay Kennedys? Bueno, hace un par de semanas que que eso terminó. ¿Hay Marilyn? Vos mirá la duración que tiene esto y decinos si entraba. Al final querés la novia borracha y la botella llena.
 
 ## [242] - 2022.01.21 - Es como los grados de separación con Kevin Bacon, pero de cogerse gente (77m) [spotify](https://open.spotify.com/episode/4WwuCwUiGGLv9myORdlJ6x)
+
+* The Innocents (2021)
 
 Sí, adivinaste: es viernes. El día que sale Hoy Trasnoche. ¿Y adiviná qué? Hay un nuevo episodio. Salidos de la emoción de la semana pasada, Flor y Calu vuelven a la habitualidad con un episodio de novedades totales, porque vieron The Innocents (De uskyldige, 2021) de Eskil Vogt, no pensaron taaan lo mismo y capaz que se tiraron con de todo. No contentos con eso, trajeron coyuntura variada a la mesa, que incluye, entre otras cosas, un “devolvé la guita” que no nos pertenece, algo más de Ridley Scott y la película esa de época y hasta a Slavoj Žižek haciendo la review de la nueva Matrix. Pero esperá que hay más, porque no es un capítulo Kennedyless. O sí. O no. O más o menos, porque después del temita de Dallas medio que JFK quedó en el recuerdo, pero Flor empieza la saga de la mamá de Leevon Kennedy. Mirá, la verdad que no se nos ocurre qué más podés querer, pero esto es lo que hay.
 
 ## [241] - 2022.01.14 - Como una Coti Nosiglia del bien (100m) [spotify](https://open.spotify.com/episode/30pqZnAnTCJHxNRUc79JDj)
 
+* The Last Picture Show (1971)
+
 Este es un mensaje automático para avisarte que es viernes y que hay Hoy Trasnoche. Por favor no lo respondas. En esta ocasión Flor y Calu, conmovidos por la muerte de Peter Bogdanovich decidieron hacer eso que siempre habían pensado y nunca llevaron adelante: Ayer Trasnoche, un episodio especial hablando de una película del pasado. La elegida es, obviamente, La última película (1971). Pero eso no es todo, porque además de hablar de ella, hablan de Bogdanovich, su vida profesional, sus líos amorosos y hasta coquetean con el true crime. ¿Hay coyuntura? Hay coyuntura. Y, como si todo esto fuera poco, es un episodio con escena post créditos que, a diferencia de las películas de superhéroes, no quiere venderte nada.
 
 ## [240] - 2022.01.07 - El llavero de Jaimito de Hoy Trasnoche (85m) [spotify](https://open.spotify.com/episode/3eKclDvNVamlFesEAFjpfw)
+
+* The Lost Daughter (2021)
 
 Sí, es el primer viernes de 2022 y ¿podés creer que hay un nuevo Hoy Trasnoche? En esta ocasión Flor y Calu presentan coyuntura variada, que incluye unas muy claras declaraciones de Gal Gadot, los Golden Globes convertidos en el Martín Fierro del interior, datos sobre el streaming con más crecimiento, los números de la integración de mujeres en roles técnicos importantes en las películas y algunas cosas más. Además, y solo porque en el fondo este es un podcast de cine, vieron The Lost Daughter (2021), el debut como directora de Maggie Gyllenhaal. ¿Les gustó mucho? ¿Poco? ¿Nada? Ah, eso lo vas a tener que escuchar para descubrirlo. Como si todo esto fuera poco, HAY KENNEDYS y ¿se resuelve? el misterio del "aber kojan" entre JFK y Marilyn Monroe. La verdad que no sabemos qué más podés pedir a esta altura de enero. Capaz un barquillo en la playa, pero de este podcast nidea.
 
@@ -312,17 +480,27 @@ Sí, es viernes. El día que a veces sale Hoy Trasnoche. La semana pasada no hub
 
 ## [237] - 2021.12.10 - La Pachamama es más mala que Jason (92m) [spotify](https://open.spotify.com/episode/7pxoHHZZvBrXiQD8Y8TOpi)
 
+* The Feast (2021)
+
+* The Humans (2021)
+
 Sí, es viernes: ese mágico día donde a veces sale Hoy Trasnoche. Hoy es uno de los que sí, y la espera valió la pena, porque tenemos un capitulazo. Bueno, a bajar las expectativas: hay coyunturas variadas; que incluyen la pasión de Spielberg por poner solo latinos puros en Amor sin barreras, por extraño que eso suene; el casteo de Nicolas Cage como Dracula; el no estreno de la nueva de Almodóvar en cines y la lista de "lo mejor del año" según IMdB. Esperá, no te pegues un tiro, porque también se habla de dos películas sobre cenas que resultan diametralmente opuestas: The Humans de Stephen Karam y The Feast de Lee Haven-Jones, que unx le gustó más al otrx y viceversa... ¿Cuál a quién? Ni ellxs se acuerdan. Y eso no es todo: porque este capítulo incluye Kennedys, con lo que empieza como un canapé y termina en una historia algo larga y, para que mentirte, horrorosa. Bueno, querías Hoy Trasnoche ahí lo tenés. Ahora no rompas más los huevos hasta el viernes que viene.
 
 ## [236] - 2021.11.26 - Dura y pegada a la bolsa (63m) [spotify](https://open.spotify.com/episode/19jHfufQxTgp73Y1lQbLX7)
+
+* Benedetta
 
 ¡Hola! Este es un mensaje automático para avisarte que es viernes y que hay un nuevo episodio de Hoy Trasnoche. En esta ocasión, se discuten coyunturas muy actuales, con Paul Thomas Anderson reconsiderando la duración de las películas, Ridley Scott enojado porque nadie fue a ver su película de príncipes en el siglo XII, Maggie Gyllenhaal entrando a aportar sus porotos sobre el tema de la bufanda y Eddie Redmayne, famoso por La chica danesa, arrepintiéndose de haber hecho La chica Danesa. Spoiler alert: ningunx devuelve la plata. En notas más cordiales, Flor y Calu hablan de ¡dos! películas de rutilante actualidad: El misterio del Soho de Edgar Wright y Benedetta de Paul Verhoeven. No hay Kennedys, porque se ve que Flor quiere armar momentum o una conspiración o andá a saber qué. Qué lujo, ¿eh? No la podés creer.
 
 ## [235] - 2021.11.19 - No sé lo que es la droga (66m) [spotify](https://open.spotify.com/episode/29YYpbVttFyIRqqFJbwut3)
 
+* The Medium
+
 Y si, ya es viernes. Elegido por la cámara de Diputados como "El día de Hoy Trasnoche". Mirá si con todo este honor y plaqueta te íbamos a dejar a gamba como la semana pasada. En este episodio hablamos de black metal primero y de Mel Gibson después y sugerimos un complot, no entendemos del todo que es un NFT pero parece que Tarantino tuvo un quilombo con ellos, analizamos con la altura que solo nosotros tenemos el ¿corto? de Taylor Swift y leemos la gacetilla del curso de cine del director de Francella enano. Y vos pensarás que eso es todo, pero no porque este es un podcast de cine. Así que hablamos de una película que a una de las partes le gustó mucho y a la otra, bueno, también, pero le dolió admitirlo: la tailandesa The Medium, de Banjong Pisanthanakun. La verdad que si vos te pensás que te podemos dar más, nos podés mandar una carta documento.
 
 ## [234] - 2021.11.05 - A un comentario de J. K. Rowling de que nos cancelen (65m) [spotify](https://open.spotify.com/episode/4Sum13G1ZBSayDwiFOACj0)
+
+* Lamb
 
 Sí, no te mintieron: es viernes. Y si es viernes hay Hoy Trasnoche, el único podcast del mundo. Atentos a su desliz de haberse olvidado del Baldwin affaire por dos semanas seguidas, Flor y Calu les ofrecen un episodio que es mitad cobertura y conspiraciones ¡con revelaciones de casi último momento! a modo de lavar un poco la culpa, y mitad hablar de una película. El film que los convoca esta semana es Lamb (2021) de Valdimar Jóhannsson o, como le gusta llamarla a Flor "La del carnero pijudo." Otro capítulo Kennedyless, pero con razones de peso que para descubrir vas a tener que llegar hasta el final. Más, la verdad que no te podemos dar ni haciendo un esfuerzo.
 
@@ -332,9 +510,15 @@ Y si: ya es viernes y es momento de un nuevo episodio del mejor y único podcast
 
 ## [232] - 2021.10.22 - Es como cagar pero para adentro (65m) [spotify](https://open.spotify.com/episode/56LzGxDV4HsAjqUTVLNHNe)
 
+* Titane (2021)
+
 AUNQUE NO LO CREAS ES VIERNES, ese mágico día de la semana donde sale Hoy Trasnoche. Esta semana, Flor y Calu se ocupan de coyunturas de todo tipo que incluyen huelgas que al final no, la casa de Pesadilla en venta, la biopic de Ozzy, el drama de Duna y no nos acordamos qué pingo más. Ahora, si lo que querés es que hablen de cine, estás de parabienes, porque finalmente pudieron ver Titane de Julia Ducournau, la nueva reina del body horror. Y como si todo esto fuera poco, hay una puntita de los Kennedy, que incluye a Marilyn Monroe y todo y una participación especial del querido Sebastián De Caro por mensaje de audio. Más, sinceramente, sería camarones.
 
 ## [231] - 2021.10.15 - Ojotas Bambino Veira (59m) [spotify](https://open.spotify.com/episode/32fj4YYZ6S4svj7CqG4MOD)
+
+* The Night House
+
+* Fever Dream
 
 UN CALO. UNA FLOR. DOS PELÍCULAS. MUCHA COYUNTURA. NINGÚN KENNEDY.
 
@@ -916,25 +1100,45 @@ Hoy Trasnoche es el "otro" podcast de cine, para los que saben que hay mucho má
 
 ## [86] - 2019.09.27 - Al principio es rica pero después te mata (62m) [spotify](https://open.spotify.com/episode/5yUu2DDyWAUguq9F9cWA2r)
 
+* Midsommar
+
 Hoy Trasnoche es el "otro" podcast de cine, para los que saben que hay mucho más que las películas de la semana. Conducen Santiago Calori y Fiorella Sargenti. Esta semana: Midsommar en los torrents y por qué llega tan tarde a los cines. En el portarretratos, la actriz Ajita Wilson. En los caprichos de Flor, por qué suena tanto Dies Irae en las películas. Y en el videoclub de Calo, The Wolf Hour.
 
 ## [85] - 2019.09.20 - A dos toses (46m) [spotify](https://open.spotify.com/episode/6dxeV15ztx2ziMeJmxDFSI)
+
+* Ad Astra
+
+* Initials S.G.
 
 Hoy Trasnoche es el "otro" podcast de cine, para los que saben que hay mucho más que las películas de la semana. Conducen Santiago Calori y Fiorella Sargenti. En este episodio, y embriagados por el éxito de su presentación en vivo, hablan de Ad Astra e Iniciales S.G. En el portarretratos, el compositor italiano Alessandro Alessandroni. En los caprichos de Flor, la historia oscura de Mujer Bonita. En el videoclub de Calu, The Boat, de Winston Azzopardi.
 
 ## [84] - 2019.09.13 - Especial de Navidad con Sebastián De Caro (68m) [spotify](https://open.spotify.com/episode/1iz7APXNe7WTjW5jjjTf5c)
 
+* Claudia
+
 Hoy Trasnoche es el "otro" podcast de cine, para los que saben que hay mucho más que las películas de la semana. Conducen Santiago Calori y Fiorella Sargenti. En este episodio, reciben la visita de Sebastián De Caro para hablar de su nueva película, Claudia, y de cómo está el cine en Argentina y el mundo.
 
 ## [83] - 2019.09.06 - Muertos sin vida (43m) [spotify](https://open.spotify.com/episode/6ABSH5Nry7kGqOULQKUPQS)
+
+* It Chapter Two
+
+* The Clowns
+
+* Teen Spirit
+
+* High Life
 
 Hoy Trasnoche es el "otro" podcast de cine, para los que saben que hay mucho más que las películas de la semana. Conducen Santiago Calori y Fiorella Sargenti. En este episodio: IT Capítulo 2, Los Payasos, Teen Spirit: Alcanzando tu Sueño y High Life. En el portarretratos: Kevin McClory. En los caprichos de Flor: Peter Bogdanovich. En el videoclub de Calu: Memory: The Origins of Alien.
 
 ## [82] - 2019.08.30 - No sé si nos va a entrar todo (59m) [spotify](https://open.spotify.com/episode/6RdUAZgXW7WKu8pOjtQPJa)
 
+* Greta (2018)
+
 Hoy Trasnoche es el "otro" podcast de cine, para los que saben que hay mucho más que las películas de la semana. Conducen Santiago Calori y Fiorella Sargenti. Esta semana: La Música de mi Vida y La Viuda. En el portarretratos (a.k.a. "BIEN MUERTO ESTÁ"), John Lennon. En los caprichos de Flor, la historia de Mackenzie Phillips. Y en el videoclub de Calu, In Fabric.
 
 ## [81] - 2019.08.23 - Había una vez... PORONGA (60m) [spotify](https://open.spotify.com/episode/02OwpvBJnK3ojdqUDoBsc5)
+
+* Once Upon a Time… in Hollywood
 
 Hoy Trasnoche es el "otro" podcast de cine, para los que saben que hay mucho más que las películas de la semana. Conducen Santiago Calori y Fiorella Sargenti. Esta semana: finalmente se estrena Había una vez... en Hollywood, la nueva película de Quentin Tarantino. ¿Maravilla u HOY PORONGA? En el portarretratos: John Cale. En los caprichos de Flor: el rancho de la Familia Manson. Y en el videoclub del tío Calu: Hail Satan?
 
@@ -943,6 +1147,8 @@ Hoy Trasnoche es el "otro" podcast de cine, para los que saben que hay mucho má
 Te invitamos a escuchar Dr. Muerte, un nuevo podcast basado en hechos reales que cuenta la investigación de los crímenes de Christopher Duntsch, un médico de Dallas que mutiló o asesinó a 33 pacientes en tan solo dos años. Un viaje al interior del sistema médico que no protegió a estos pacientes. En 6 episodios, vas a escuchar historias desgarradoras de pacientes que sobrevivieron y de los médicos que intentaron detenerlo. Suscribite ya a Dr. Muerte en http://wondery.fm/drmuerte.
 
 ## [79] - 2019.08.16 - Falopa mala mala falopa (46m) [spotify](https://open.spotify.com/episode/03YsIW2DSItiEhJ268MWd9)
+
+* Booksmart
 
 Hoy Trasnoche es el "otro" podcast de cine, para los que saben que hay mucho más que las películas de la semana. Conducen Santiago Calori y Fiorella Sargenti. Esta semana: Booksmart, de Olivia Wilde. En el portarretratos: el director Jesús Franco. En los caprichos de Flor: ¿por qué Charles Manson cometió sus crímenes? Y en el videoclub de Calo: Brain Damage, de Frank Henenlotter.
 
