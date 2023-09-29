@@ -1,10 +1,14 @@
+title: Hoy Transnoche Log
+
 plugins:
   - jekyll-relative-links
+
 relative_links:
   enabled: true
   collections: true
+
 include:
   - README.md
   - stats.md
-theme:
-  - minimal
+
+theme: minima
