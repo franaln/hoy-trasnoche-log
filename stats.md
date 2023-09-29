@@ -1,4 +1,8 @@
-# Stats
+---
+layout: page
+title: Stats
+permalink: /stats/
+---
 
 ## Duración de los episodios
 

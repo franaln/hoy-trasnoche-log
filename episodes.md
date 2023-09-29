@@ -1,4 +1,8 @@
-# Episodios
+---
+layout: page
+title: Episodios
+permalink: /episodes/
+---
 
 ## [314] - 2023.09.22 - Te falta el vocoder y sos Magnetto (71m) [spotify](https://open.spotify.com/episode/6YL2H8K0xeMeAy0dqyAWw4)
 

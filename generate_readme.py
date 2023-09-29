@@ -49,5 +49,9 @@ with open('README.md', 'w+') as f:
     f.write(txt)
 
 with open('episodes.md', 'w+') as f:
-    f.write('# Episodios\n\n')
+    f.write('---\n')
+    f.write('layout: page\n')
+    f.write('title: Episodios\n')
+    f.write('permalink: /episodes/\n')
+    f.write('---\n\n')
     f.write(txt)
