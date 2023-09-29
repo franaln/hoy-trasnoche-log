@@ -1,4 +1,11 @@
 title: Hoy Transnoche Log
+author:
+  name: franaln
+  email: franal@gmail.com
+
+description: >
+  Todos los episodios del unico podcast del mundo con las peliculas de las que
+  hablan en cada uno + algunos graficos con estadisticas + ...
 
 plugins:
   - jekyll-relative-links
