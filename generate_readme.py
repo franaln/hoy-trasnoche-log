@@ -49,4 +49,5 @@ with open('README.md', 'w+') as f:
     f.write(txt)
 
 with open('episodes.md', 'w+') as f:
+    f.write('# Episodios\n\n')
     f.write(txt)
