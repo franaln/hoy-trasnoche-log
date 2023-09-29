@@ -7,4 +7,4 @@ include:
   - README.md
   - stats.md
 theme:
-  - minima
+  - minimal
