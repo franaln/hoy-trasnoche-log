@@ -9,12 +9,7 @@ movies_db = yaml.safe_load(open('pelis.yml', 'r'))
 def get_duration_min(ms):
     return int(round(ms / 1000 / 60, 0))
 
-
-txt = """hoy-trasnoche-log
-=================
-
-
-"""
+txt = ''
 
 ep_counter = len(df)
 
@@ -45,4 +40,13 @@ for ix, ep in df.iterrows():
 
 
 with open('README.md', 'w+') as f:
+
+    f.write("""hoy-trasnoche-log
+=================
+
+
+""")
+    f.write(txt)
+
+with open('episodes.md', 'w+') as f:
     f.write(txt)

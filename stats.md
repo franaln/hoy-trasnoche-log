@@ -1,5 +1,3 @@
-# Hoy trasnoche stats
-
 ## Duración de los episodios
 
 <img src="plots/duration_kde.png" alt="plot1" width="800"/>

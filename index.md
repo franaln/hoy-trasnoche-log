@@ -1,5 +1,2 @@
-Hoy Transoche
-=============
-
-- [Episodios](README.md)
+- [Episodios](episodes.md)
 - [Stats](stats.md)
