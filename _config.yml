@@ -23,3 +23,9 @@ header_pages:
   - stats.md
 
 theme: minima
+
+minima:
+
+  social_links:
+    - { platform: github,         user_url: "https://github.com/franaln/hoy-trasnoche-log" }
+    - { platform: instagram,      user_url: "https://www.instagram.com/filmejuntoalpueblo" }
