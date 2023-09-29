@@ -1,23 +1,22 @@
-# Hoy trasnoche data
+# Hoy trasnoche stats
 
-## Duracion de los episodios
+## Duración de los episodios
 
-![plot1](plots/duration_kde.png)
-
-![plot2](plots/duration_hist.png)
+<img src="plots/duration_kde.png" alt="plot1" width="800"/>
+<img src="plots/duration_hist.png" alt="plot2" width="800"/>
 
 ## Episodios por mes
 
-![plot3](plots/episodes_month.png)
+<img src="plots/episodes_month.png" alt="plot3" width="800"/>
 
 ## Episodios por año
 
-![plot4](plots/episodes_year.png)
+<img src="plots/episodes_year.png" alt="plot4" width="800"/>
 
 ## Episodios mas largos
 
-![plot5](plots/longest_episodes.png)
+<img src="plots/longest_episodes.png" alt="plot5" width="800"/>
 
-## Nube de palabras
+## Nube de palabras mas usadas en la descripción
 
-![plot6](plots/words_cloud.png)
+<img src="plots/words_cloud.png" alt="plot6" width="800"/>
