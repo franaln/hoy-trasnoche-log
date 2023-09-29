@@ -8,7 +8,11 @@ relative_links:
   collections: true
 
 include:
-  - README.md
+  - episodes.md
+  - stats.md
+
+header_pages:
+  - episodes.md
   - stats.md
 
 theme: minima
