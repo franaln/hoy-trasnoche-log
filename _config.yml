@@ -9,7 +9,6 @@ description: >
   hablan en cada uno + algunos graficos con estadisticas + ...
 
 plugins:
-  - jekyll-feed
   - jekyll-relative-links
   - jekyll-seo-tag
   - jekyll-remote-theme
