@@ -2,7 +2,15 @@ hoy-trasnoche-log
 =================
 
 
-## [314] - 2023.09.22 - Te falta el vocoder y sos Magnetto (71m) [spotify](https://open.spotify.com/episode/6YL2H8K0xeMeAy0dqyAWw4)
+## [316] - 2023.10.06 - Con el pelado de El Transportador (82m) [spotify](https://open.spotify.com/episode/6rOGcz6IVa1uBBzln6ubxm)
+
+Se estrenó una nueva de la saga Saw y se hizo lo que había que hacer. Calu y Flor no sólo hablan de El Juego del Miedo X (2023), también tratan de ¿rankear? ¿analizar? ¿distinguir? ¿ordenar? todas las películas de este universo creado por James Wan y Leigh Whannell.  Se discuten también cuestiones vinculadas con Glen Danzig y la política de los cines con respecto a hablar en medio de una función, la película seleccionada para representar a Argentina en los Oscar y Mean Girls en Tik Tok.   🐐 Si querés escuchar más podés suscribirte a la versión paga en hoytrasnoche.com 🐐
+
+## [315] - 2023.09.29 - 118: Si yo voy a ver esta película vos también (81m) [spotify](https://open.spotify.com/episode/4y53XuXDwBfrnMdDNTzX7E)
+
+Una vez más Calu (Santiago Calori) y Flor (Fio Sargenti) reciben al Negro Martí. Nos ponemos de pie, aplaudimos y agradecemos.  El tema es que vieron Los Indestructibles 4 (Expend4bles, 2023). Y bueno, viejo, todo no se puede. Ah, y se terminó la huelga de guionistas así que tratamos de repasar algunos de los puntos más importantes, además de comentar varias de las cosas que viene diciendo Martin Scorsese en los últimos días.   🐐 Si esto te gusta podés pasar por hoytrasnoche.com 🐐
+
+## [314] - 2023.09.22 - 117: Te falta el vocoder y sos Magnetto (71m) [spotify](https://open.spotify.com/episode/6YL2H8K0xeMeAy0dqyAWw4)
 
 La película de este episodio es Rotting in the Sun (2023) de Sebastián Silva. Muchos pitos, un perrito, una señora atribulada, un influencer perdido y otros mambos. Claro que hay coyuntura y, AH, ANUNCIO IMPORTANTE sobre *el otro podcast*.  🐐 Si querés más de todo esto pasá por hoytrasnoche.com 🐐  Conducen Fiorella Sargenti y Santiago Calori. 
 
