@@ -4,9 +4,13 @@ hoy-trasnoche-log
 
 ## [326] - 2023.12.15 - 129: Qué podés spoilear de una película con un elfo malo (70m) [spotify](https://open.spotify.com/episode/2gcRvpRkRRCWOMQc0CPfCm)
 
+* There's something in  the barn (2023)
+
 A Calu y Flor les dijeron "Noruega, Navidad" y ellos entraron. ¿Qué vieron? There's Something in the Barn (2023) de Magnus Martens.  El temario del episodio incluye el debate por las películas favoritas de Mark Ruffalo, Yorgos Lanthimos y Emma Stone, a Paul Schrader defendiendo su derecho a reseñar en Facebook, alguito de las nominaciones de los Golden Globes y una charla sobre el uso del humor en películas que tocan *temas serios* disparada por May December (2023).  🐐 Si querés más de todo esto entrá en hoytrasnoche.com y ayudanos a existir, básicamente. También nos encontrás hablando de otras cuestiones en Matar Está Mal, que sale todos los lunes. 🐐
 
 ## [325] - 2023.12.08 - 128: El podcast que habla de cine sin el celular en la mano (72m) [spotify](https://open.spotify.com/episode/3QQYGOwGKkfSJuNftE4yJA)
+
+* Showing up (2023)
 
 Esto es realmente inaudito pero parece que Santiago Calori y Fiorella Sargenti vieron LA MISMA PELÍCULA: Showing Up (2022), dirigida por Kelly Reichardt -First Cow- con Michelle Williams de protagonista.  Flor también vio Napoleón (2023) así que se discute un poco el tema Ridley Scott ¿versus? Martin Scorsese, los presupuestos de Hollywood comparados con los de las Godzillas japonesas y una cantidad de cosas más.  Si todo esto te interesa te podés sumar al Country Club eligiendo una suma que te quede cómoda en hoytrasnoche.com. Gracias. 🕊️
 
@@ -16,17 +20,27 @@ EPISODIO HISTÓRICO. Vimos TRES películas, no te vamos a decir cuáles ni por q
 
 ## [323] - 2023.11.24 - 126: Yo ya lo puse en el mismo estante de Jared Leto (72m) [spotify](https://open.spotify.com/episode/1JyMdWPxOl0Ww5ZeueePo7)
 
+* Where the Devil Roams (2023)
+
 Santiago Calori y Fiorella Sargenti vieron una película a la que le tenían muchas ganas: Where the Devil Roams (2023), de la familia-trío creativo Zelda Adams, John Adams y Toby Poser. Como extra tenés un poco sobre cómo la situación de Medio Oriente está dividiendo a Hollywood, otro tanto de Ridley Scott dando respuestas hilarantes mientras promociona Napoleón y algo sobre un romance Donato el cocinero y Molly Ringwald.  🐐 Podés acceder a contenido exclusivo en hoytrasnoche.com. Y si te interesan las sectas, conspiraciones, asesinos seriales y desmás cuestiones podés escuchar Matar Está Mal, disponible en esta misma app 🐐
 
 ## [322] - 2023.11.17 - 125: El ASMR de Julio Bárbaro (69m) [spotify](https://open.spotify.com/episode/3F3iVXkxGb9nTvg45ygsR3)
+
+* Suitable Flesh (2023)
 
 En un curioso incidente Santiago Calori y Fiorella Sargenti terminan discutiendo si lo que vieron es en efecto una película de The Film Zone o no. ¿Cuál? Suitable Flesh (2023) de Joe Lynch. El diferencial que tiene es que está escrita por Dennis Paoli, co-guionista de Re-Animator (1985). Para coyuntura tocó mucho de inteligencia artificial y actores, Warner tratando de tirar películas enteras para ahorrarse impuestos y más del éxito de Cuando Acecha la Maldad.  🐐 Si podés, tenés ganas, te cabe y todo eso podés pasar por hoytrasnoche.com para suscribirte y hacer posible todo este universo, que incluye *el otro podcast* llamado Matar Está Mal, también disponible en esta plataforma 🐐
 
 ## [321] - 2023.11.10 - 124: Pan para hoy, agua para mañana (71m) [spotify](https://open.spotify.com/episode/6Yi8klXhIkhiiovGw5EKRO)
 
+* Cuando Acecha la Maldad (2023)
+
 Santiago Calori y Fiorella Sargenti vieron la película argentina de terror de la que se viene hablando en todos los grandes festivales del género: Cuando Acecha la Maldad (2023) de Demián Rugna. Y HAY MUCHO PARA CHARLAR, OBVIO. Por otro lado terminó la huelga de actores (pero a qué costo, ¿verdad?), Nicolas Cage está algo confundido por el CGI de The Flash y otras cosas por el estilo.  🐐 Si querés aportar a la causa universo trasnochiter pasate por hoytrasnoche.com, suscribite y recibí un episodio extra por semana 🐐
 
 ## [320] - 2023.11.03 - 123: Fresca como en esa esquina de Gesell (74m) [spotify](https://open.spotify.com/episode/3Bg4xeW1XVAnCSGKSLI6Eb)
+
+* Five Nights at Freddy's (2023)
+
+* The Pigeon Tunnel, Errol Morris
 
 Gracias a lo desprendidísimos que son los miembros del Country Club (podés sumarte en hoytrasnoche.com) Flor y Calu vieron DOS películas. Absolutamente nada las une y probablemente eso sea lo mejor. Anotá: Five Nights at Freddy's (2023) y The Pigeon Tunnel, el nuevo documental de Errol Morris. A eso sumale que entre una cosa y otra la coyuntura de la semana se convirtió en una especie de noticiero film bro. Eso incluye a David Fincher, Elon Musk, Megan Fox, los que hacen de Elvis y el que trató de burlarse de Scorsese. 
 
@@ -35,6 +49,8 @@ Gracias a lo desprendidísimos que son los miembros del Country Club (podés sum
 La francesa Anatomy of a Fall (Anatomie d'une chute, 2023) se quedó afuera del Oscar pero no de este podcast, que es lo que realmente importa, ¿verdad? Scorsese sigue sumando redes sociales, los gen z quieren menos sexo en el cine, los negacionistas no pueden creer que te guste Argentina 1985 y Ari Aster dice que no entendimos Beau is Afraid. Santiago Calori y Fiorella Sargenti hablan de todo eso y algo más. 🐐 Entrá en hoytrasnoche.com para sumarte a la versión paga re mega ultra lujosa de este podcast 🐐
 
 ## [318] - 2023.10.20 - 121: Este es mi San Andreas (83m) [spotify](https://open.spotify.com/episode/3hHXsoI3q7QtxNSjubb6Q9)
+
+* Los Asesinos de la Luna (2023)
 
 Calu y Flor vieron Los Asesinos de la Luna (2023), la nueva de Scorsese y tienen cosas para decir. Esto incluye una retrospectiva (!) completa y defensa anti argumento film bros. Coyuntura: A Ridley Scott no le gustaron unas películas nuevas pero sí otras, Gwyneth Paltrow está en contra de la etiqueta “nepo baby”, la huelga de actores y Halloween y bueno ya es un montón. Ahora ya que estás podés entrar en hoytrasnoche.com y suscribirte. Gracias. 🖤
 
